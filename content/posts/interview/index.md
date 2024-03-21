@@ -15,16 +15,15 @@ description = ""
 Segelschiff Tectona
 Deutsch Reportage -Interview 
 
-
 ***Datum:*** 02.03.24
 
-
 ***Interviewerin:*** Fellen Avril Dickson 
-
 
 ***Befragte Person:*** 
 Thérèse Zöller (Pseudonym) Auf Wunsch der Befragten Person wurde der Name geändert
 Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängigen
+
+![](screenshot-183.jpg-1-.png)
 
 Danke das du dir die Zeit nimmst um dieses Interview durchzuführen. 
 Sehr gerne, ich habe mich über die Anfrage gefreut. 
@@ -33,10 +32,13 @@ Ich bin gespannt über das Abenteuer das du auf dem Schiff erlebt hast zu erfahr
 ***\-Wie ich gehört habe, nennt man dich „alter Seebär“ wieso beschreibt man dich so?***
 Ich gehe davon aus dass diese Titel Alter Seebär eben daher rührt, weil ich sehr begeistert war mit all den Dingen die Geschahen wärend dieser Reise. 
 Es ging darum das die Arbeit auf dem Schiff Präzision, Gegenwart und Aktivität erforderte. Man muss dabei sein. Also es geht nicht dass man lauert wie wir sagen, wenn die Fahrt erfolgreich sein soll, das macht ein alter Seebär aus. 
+
 ***\-Woher kam deine Leidenschaft für das Meer und das Segeln?*** 
-Das Meer war immer ein Anziehungspunkte für mich. Ich habe mit meinen 3 Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See Ausweis also See gleich Meer Ausweis. Und wie ich den hatte, meldete ich mich bei der Plus Schweizer Jung zur See, mit der Bitte sie sollen mich auf so einen Törn als Mitarbeiterin schicken. 
+Das Meer war immer ein Anziehungspunkte für mich. Ich habe mit meinen 3 Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See Ausweis also See gleich Meer Ausweis. Und wie ich den hatte, meldete ich mich bei der Plus Schweizer Jung zur See, mit der Bitte sie sollen mich auf so einen Törn als Mitarbeiterin schicken. \
+
 ***\-Was war das für eine Schifffahrt auf der du dabei warst?*** 
-Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation Plus Schweizer Jugend zur See, geführt wurde. Auf diesem Schiff fanden Turns statt, die mit Jugendlichen, nach dem Drogenentzug, einen Turn fuhren als Therapie. Auf dem Schiff waren mehrere Betreuer und Jugendliche. 
+Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation Plus Schweizer Jugend zur See, geführt wurde. Auf diesem Schiff fanden Turns statt, die mit Jugendlichen, nach dem Drogenentzug, einen Turn fuhren als Therapie. Auf dem Schiff waren mehrere Betreuer und Jugendliche. \
+
 ***Hat die Reise einen speziellen Namen gehabt?*** Sommertörn 1994 95.
 
 ***Wie lange wart ihr dann in insgesamt zusammen unterwegs?*** 
