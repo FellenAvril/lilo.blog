@@ -7,12 +7,12 @@ tags = []
 image = "screenshot-183.jpg-1-.png"
 description = ""
 +++
-***Weg von den Drogen in einen neuen Lebensabschnitt segeln*\
-*Die Segeltour als Terapie für Exdrogenabhängige***
+***Weg von den Drogen in einen neuen Lebensabschnitt segeln***\
+Die Segeltour als Therapie für Exdrogenabhängige
 
 ![](screenshot-183.jpg-1-.png)
 
-Segelschiff Tectona\
+Segelschiff Tectona
 
 Deutsch Reportage -Interview 
 
@@ -33,10 +33,10 @@ Ich gehe davon aus dass diese Titel Alter Seebär eben daher rührt, weil ich se
 Es ging darum das die Arbeit auf dem Schiff Präzision, Gegenwart und Aktivität erforderte. Man muss dabei sein. Also es geht nicht dass man lauert wie wir sagen, wenn die Fahrt erfolgreich sein soll, das macht ein alter Seebär aus. 
 
 ***\-Woher kam deine Leidenschaft für das Meer und das Segeln?*** 
-Das Meer war immer ein Anziehungspunkte für mich. Ich habe mit meinen 3 Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See Ausweis also See gleich Meer Ausweis. Und wie ich den hatte, meldete ich mich bei der Plus Schweizer Jung zur See, mit der Bitte sie sollen mich auf so einen Törn als Mitarbeiterin schicken. \
+Das Meer war immer ein Anziehungspunkte für mich. Ich habe mit meinen 3 Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See Ausweis also See gleich Meer Ausweis. Und wie ich den hatte, meldete ich mich bei der Plus Schweizer Jung zur See, mit der Bitte sie sollen mich auf so einen Törn als Mitarbeiterin schicken. 
 
 ***\-Was war das für eine Schifffahrt auf der du dabei warst?*** 
-Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation Plus Schweizer Jugend zur See, geführt wurde. Auf diesem Schiff fanden Turns statt, die mit Jugendlichen, nach dem Drogenentzug, einen Turn fuhren als Therapie. Auf dem Schiff waren mehrere Betreuer und Jugendliche. \
+Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation Plus Schweizer Jugend zur See, geführt wurde. Auf diesem Schiff fanden Turns statt, die mit Jugendlichen, nach dem Drogenentzug, einen Turn fuhren als Therapie. Auf dem Schiff waren mehrere Betreuer und Jugendliche. 
 
 ***Hat die Reise einen speziellen Namen gehabt?*** Sommertörn 1994 95.
 
@@ -80,16 +80,16 @@ Auf unserem Schiff auf unserem Törn, hatten wir Jugendliche von 17 Jahren bis 2
 Erneut Haufen Flöhe also da war extrem viel los. Sie schlossen sich zusammen also egal wie viele Herausforderungen sie untereinander hatten, wie das Halt in einer Peer Gruppe ist. Es kam dann irgendwann die Phase, wo sie sich zusammenrotten gegen uns Erwachsene und das wurde schwierig. 
 Sie haben sich zusammengesetzt damit sie stärker sind? Ja 
 
-Wie hat sich dann auf dem Weg die Dynamik entwickelt? 
+***Wie hat sich dann auf dem Weg die Dynamik entwickelt?*** 
 Gibt es Geschichten, die du erzählen möchtest.
 Ja vielleicht beginne ich bei einem ersten Beispiel, aber es gibt wirklich verschiedene wiederholte Beispiele. Das erste Beispiel passierte in der Mulin, wo wir denn Auftrag hatten, eben Teamfindung. Das war so weit entfernt oben in den Bergen, in der Hoffnung da kommen keine Drogen hin, ja denkste, die sind clever genug. Also eines nachts kommen ein Mädchen und ein Junge zu mir. Panisch bringen sie mich zum Jüngsten der Teilnehmenden. Der liegt bewusstlos in seinem Kot, das ganze Bett voll Kot. Was war geschehen, die haben es geschafft Alkohol in die Hütte reinzubringen, an uns vorbei wir hatten das nicht mitgekriegt. Die füllten ich nenne ihn das Jüngelchen, weil das war der 17 jährige, die füllten das Jüngelchen ab, bis er in Delirium (stelierium) viel und das kann tödlich enden. Also ich hab da Blut geschwitzt und weil sie ein schlechtes Gewissen hatten halfen diese Frau und dieser junge Mann mir diesen Jungen zu waschen, zu Duschen, von seinem Kot zu befreien, die Leintücher zu entfernen, das Bett frisch anziehen und ihn dann wieder ins Bett zu legen. Also das war ein absolut kritischer Moment und so gab es eben mehrere Geschichten.
 
 Eines nachts wurden wir, die Erwachsenen geweckt, die Polizei stand vor dieser Schlafstätte und befahl uns Erwachsenen mit auf den Polizeiposten zu kommen. Was war geschehen, die Jugendlichen waren weg. Wir wurden also auf den Polizeiposten geführt und da waren all die 7 Jugendlichen. Was war geschehen, am Tag vorher war es ihnen wieder einmal mehr gelungen zu Alkohol zu kommen. Wieder an uns vorbei und zwar in Tetrapacks. Wein, Rotwein in Tetrapacks. Wir erwischten sie und sie mussten diesen Wein die Tetrapacks öffnen und ins WC runterspülen, sämtliche Tetrapacks.
 Rache ist süss, sie kitteten zusammen, sie beschlossen zur rasch zur Garage zu gehen. Die Garage hatte einen großen Hinterhof, in diesem Hinterhof versuchten die männlichen Jugendlichen das Auto kurz zu schließen. Will heißen wenn man weiß wie kann man die Drähte nehmen und zusammenführen und dann springt der Funke über dort beim Schlüssel vom Auto und dann kannst du wegfahren. Die Frauen, die hatten die Aufgabe am Trottoir Rand Wache zu halten, falls jemand kommt, hätten sie den Jungs Alarm schlagen müssen. Die schliefen aber ein, die sassen schlafend am Strassenrand. Die Nachbarschaft wurde durch den Lärm, denn die Jugendlichen verursachten geweckt und riefen die Polizei. Die Polizei sammelte die sieben Flöhe ein und brachte sie auf den Posten. Der Skipper und ich pädagogische Leitung wir wurden auf den Posten mitgenommen. Ich war so wütend und brauchte lange Zeit, bis ich dem Beamten den Gappo klargemacht hatte, wen es um die Jugendlichen geht, bin ich zuständig und nicht der Skipper. Wir sind in Spanien Macho, Frau pfff also geht man zum Skipper, der hat das Sagen, nein hat der in diesem Fall nicht. In diesem Fall bin ich zuständig, also wir brauchten lange Zeit bis der Kapo schluckte dass er mit mir verhandeln darf. Ich war so wütend ich hab dem gesagt, weißt du was, du behältst die. Über Nacht bleiben die hier bei dir in der Kiste. Nein kommt überhaupt nicht in Frage, jetzt ging der zweite Kampf los. Ich ging davon aus hier in der Schweiz gibt es sowas wie Untersuchungshaft. Um etwa 03:00 Uhr morgens sagte der Kapo weist du was ich bin müde, ich bringe euch nach Hause mit den Flöhen, die behalten wir nicht. Ich bringe euch alle zurück zur Schlafstätte, wir holen euch morgen um 08:00 Uhr wieder ab damit wir weiter streiten können. Hat er gemacht, er ist uns abholen kommen und da hat er mir erklärt in Spanien wenn er die Jugendlichen eingebuchtet hätte, die wären so rasch nicht wieder rausgekommen. Das hätte ein riesengrosses Primborium, rechtlicher Natur gegeben, mit Richter, mit weis nicht was anderem und das wäre das Ende unserer Reise gewesen. Dann wären wir nicht einmal auf dem Schiff angelangt.
 
-\-Wie wurde das Vertrauen dann aufgebaut untereinander, wurde das irgend mal aufgebaut?
+***\-Wie wurde das Vertrauen dann aufgebaut untereinander, wurde das irgend mal aufgebaut?***
 Es gab immer wieder andere Seilschaften sowohl unter den Jugendlichen wie unter den Erwachsenen. Die Zahlmeisterin wurde von den Jugendlichen erwischt beim Drogenkonsum auf dem Schiff. Mir war schon vorher klar irgendetwas stimmte nicht, ich stand Nacht für Nacht am Deck des Schiffs in der Hoffnung ich könnte herausfinden was es ist, gelang mir nicht. Wie wir gegen die Kapverden kamen spürten wir dass es eine schwierige Situation gab, die Jugendlichen wollten uns noch weniger gehorchen die machten uns den Stinkefinger, wenn wir etwas von ihnen forderten. An einem Punkt wollte auch die Zahlmeisterin etwas durchsetzen das nicht in unserem Programm lag, sie wollte das Schiff mit dem Dingi verlassen und der Captain also der Skipper sagte Nein. Und dann kamen wir den Kapverden näher und eines Tages kommt der Skipper zu mir und sagt mir, dass eine der Jugendlichen Mädchen ihm erzählt hat dass die Jugendlichen die Zahlmeisterin beobachtet haben wie sie Drogen konsumiert. Und da war klar, die Jugendlichen hatten die Zahlmeisterin in der Hand, die konnten dem Skipper und mir den Stinkefinger zeigen. Auf Mindelo, erfuhren wir dies und ich beschloss solange die an Board ist bewegen wir das Schiff nicht mehr. Weil unsere Autorität war untergraben. Sie musste dann gehen und wir sassen einen Monat auf Mindelo. Bis wir Nachschub an Erwachsenen erhielten. Weil Zürich entliess die Zahlmeisterin sofort, also fristlos. Es musste ein Zahlmeister/in gefunden werden und als der Coskipper erfuhr, dass sie gehen musste sagte er dann geh ich auch. Jetzt waren wir nur noch 2 Erwachsene. 
-Und dort ging vertrauen verloren, bei den Jugendlichen weil es unter den Erwachsenen missbraucht wurde? 
+***Und dort ging vertrauen verloren, bei den Jugendlichen weil es unter den Erwachsenen missbraucht wurde?*** 
 Also der Kapitän (Skipper) und ich waren jetzt wirklich ein Team, das zusammenhielt und die Jugendlichen hatten jetzt kein Pfand mehr in der Hand.
 War das wahrscheinlich die ganze Zeit schon ein Problem das ihr gehabt habt und deswegen konnten sie so viel schlechtes machen? Ja
 Der Skipper und ich wir haben Sie bereits in Zürich erwischt beim Drogenkonsum und meine erste Reaktion war ich renne zu meiner Freundin der Bereichsleiterin. Ich rätsche oder täffele wie man auf Zürichdeutsch sagt, ich verrate die Zahlmeisterin, dass sie eben Drogen konsumiert. Ein zweiter Gedanke war dann, halt Moment wir sind 3 Erwachsene Menschen. Der Skipper, die Zahlmeisterin und ich wir saßen zusammen und offenbarten ihr, dass wir sie erwischt hatten beim Drogenkonsum. Dann sagte sie „Das ist überhaupt kein Problem, das mach ich so manchmal hin und wieder, das kann ich lassen. Ich bin nicht von dem abhängig“. Der Skipper verlangte eine Zusage von ihr und wir beschlossen, ok schwamm darüber. Wir wollen den Turn nicht gefährden, denn das hätte zum Abbruch des Projekts führen können. Aber auf Mindelo musste sie dann fristlos gehen.
@@ -98,7 +98,7 @@ Also das war ein sehr schlechtes Beispiel für die Jugendliche.
 Haben sie auch daraus gelernt, das sie als konzequenz gehen musste? 
 Ja, du wirst erwischt und dann fertig. Dass war eine Möglichkeit daraus zu lernen, die Folge war das wir einen Monat auf Mindelo festsassen. 
 
-\-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?
+\***-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
 Sie hatten die Gelegenheit zu lernen wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässigkeit zu übernehmen, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und sünele.
 Gab es Fortschritte die du an Board miterlebt hast?
 Ein möglicher Fortschritt war für die Spanierin, als wir in den südlichen Gewässern fuhren, hatten wir fliegende Fische. Die fliegenden Fische können sehr hoch und sehr weit springen und es gab solche die sprangen von der einen Seite, vom vorderen Teil des Schiffs und versuchten über das Schiff hinüber auf die andere Seite ins Meer zu springen oder zu fliegen und dann landeten einige Halt an Deck und verelendeten jämmerlich. Und die Spanierin ist Katholikin und das war des Teufels. Die war in Panik der „Teufel kommt uns holen“ und die Gruppe versuchten ihr klarzumachen, glaube hin oder her, diese Fische die springen die Fliegen buchstäblich und das hat mit dem Teufel nix zu tun. Und mit einigen zureden, konnte sie sich dann beruhigen.
@@ -107,25 +107,25 @@ Ein weiteres Beispiel das Jüngelchen liebte das Fischen. Er warf hinten am Heck
 Hat er dann darauf gehört schlussendlich, oder hat er nicht aufgehört? Nein.
 Auf Mindelo hatten wir dann Kessel und sie fischten Hummer und warfen die in Eimern mit Meerwasser. Auch da wieder versuchten wir den Jugendlichen zu sagen, hört auf Tiere zu fangen die wir dann anschließend nicht essen.
 
-\-Was habt ihr alles für Aktivitäten an Bord gemacht?
+\***-Was habt ihr alles für Aktivitäten an Bord gemacht?***
 Segel setzen, Segel runternehmen, Segel in andere Richtung setzen, kochen, waschen, aufräumen, Kukarachas ein Ungeziefer jagen, Fischen, die Hygiene pflegen. Also wir waren vollauf beschäftigt mit dem ganz einfachen Alltag. 
 
-\-Was hast du wen du an Bord warst und in die ferne geschaut hast gesehen und wie war die Atmosphäre für dich? 
+\***-Was hast du wen du an Bord warst und in die ferne geschaut hast gesehen und wie war die Atmosphäre für dich?*** 
 Also das Meer hat mich durchgetragen, das andere war zeitweise jenseits der Kräfte, das war hardcore. Die Jugendlichen, die da weisst du eben nicht freundschaftlich waren, du musst ständig auf dem Kikwit sein, was machen sie wieder, wie geht’s, wer schlegt wenn zusammen weil irgendetwas nicht ganz auf der Linie ist.
 Aber das Meer hat mich durchgetragen. Wir sahen zum Beispiel mal eine Schildkröte weit draussen im Meer, um einem herum einfach Meer und noch mehr Meer. Wie wir uns Spanien Portugal wieder nährten, kam ein Schmetterling, draussen auf dem Meer ein Schmetterling. Ich kann vermuten ein Wind hat ihn dorthin mitgenommen.
 Als wir dan wieder im Mittelmehr wahren sahen wir Wale, auch als wir denn Atlantik runtersegelten. Das eine Jugendliche Mädchen war neben dem Kartenhaus bei der Reiling und ruft auf einmal „ein Wahl“ er ist neben dem Schiff geschwommen und aufgetaucht. 
 
-\-Wie war ein Tages Ablauf auf dem Schiff?
+\***-Wie war ein Tages Ablauf auf dem Schiff?***
 Auf dem Schiff musste alles zu jeder Zeit überwacht werden.
 Die 24 Tages und Nachtstunden wurden zwischen uns Leitern in Schichten aufgeteilt.
 Der Skipper übernahm jeweils am Tag die Wache von 8 bis 12 und in der Nacht von 20 bis 24:00 Uhr also Mitternacht. Von 12:00 bis 16:00 Uhr respektive von 24:00 Uhr also Mitternacht bis 04:00 Uhr übernahm der Coskipper die Wache. Die Wachen von 16 bis 20:00 Uhr am Tag und 04:00 bis 08:00 Uhr am Tag übernahm ich. Die Schichten waren jeweils 4 Stunden. In diesen Stunden, war jeweils diese Person verantwortlich für das Gesamthafte. Ich hatte die schönste Wache. Weil während meiner Wache ging die Sonne unter, da konnte ich den Sonnenuntergang bewundern und kam die Sonne am anderen Tag wieder rauf da konnte ich den Sonnenaufgang bewundern. Das war einfach himmlisch,  also das hat mich entschädigt für vieles was da auf dem Schiff schiefging.
 
-Welche Aufgaben und regeln musste man erfüllen?
+***Welche Aufgaben und regeln musste man erfüllen?***
 Der Skipper war verantwortlich für das Schiff, also was der sagte das wurde umgesetzt, weil der war ein ganz hervorragender Kapitän, der alter deutsche Mann hatte eine Unmenge an Erfahrung. Auf dem Schiff gab es jegliche Sachen, zu tun je nach Wind je nach was gerade anfiel, musste der sagen was zu tun ist.
 Es galt auf dem Schiff zu haushalten, waschen, kochen und aufräumen. Wenn wir an Land legten, gingen wir einkaufen, das nennt man Bunkern. Als wir Bunkern gingen, mussten wir überlegen, wie lange die Fahrt bis zum nächsten Hafen dauert und Verzögerungen einberechnen, je nachdem wie der Wind mitmacht oder nicht. Wir mussten schauen, dass wir für diese Zeit genug Nahrungsmittel und was wir sonst noch brauchten kauften. Diese mussten lange haltbar sein und gut gelagert werden. Der Tag war geführt einfach mit dem Alltäglichen und alle mussten ran.
 
-\-Wie war es für dich mit den Jugendlichen? Ich hatte die Verantwortung für sie zu sorgen. Also ich konnte ihnen sagen was zu tun ist. Wenn die Jungs das Gefühl hatten machen wir nicht, wir hören nicht auf eine Frau, bat ich denn Skipper denen das klarzumachen. Aber damit hatte ich nicht Mühe.
-Und haben sie dich dann auch respektiert?
+\***-Wie war es für dich mit den Jugendlichen?*** Ich hatte die Verantwortung für sie zu sorgen. Also ich konnte ihnen sagen was zu tun ist. Wenn die Jungs das Gefühl hatten machen wir nicht, wir hören nicht auf eine Frau, bat ich denn Skipper denen das klarzumachen. Aber damit hatte ich nicht Mühe.
+***Und haben sie dich dann auch respektiert?***
 Ja doch doch, die hatten gemerkt sie können mich nicht kaufen, was ich sage, gilt Punkt. Im Gegensatz zu der Zahlmeisterin, weil sie erwischt wurde, konnten die Jugendlichen mit der machen was sie wollten. 
 
 \-In dieser Zeit die du für dich hattest was hast du gemacht, damit du dich besser fühlst? 
