@@ -10,7 +10,7 @@ description = ""
 ***Weg von den Drogen in einen neuen Lebensabschnitt segeln***\
 Die Segeltour als Therapie für Exdrogenabhängige
 
-![](screenshot-183.jpg-1-.png)
+![](screenshot-183.jpg-1-.png "Segelschiff Tectona")
 
 Segelschiff Tectona
 
@@ -98,7 +98,7 @@ Also das war ein sehr schlechtes Beispiel für die Jugendliche.
 Haben sie auch daraus gelernt, das sie als konzequenz gehen musste? 
 Ja, du wirst erwischt und dann fertig. Dass war eine Möglichkeit daraus zu lernen, die Folge war das wir einen Monat auf Mindelo festsassen. 
 
-\***-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
+\***\-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
 Sie hatten die Gelegenheit zu lernen wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässigkeit zu übernehmen, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und sünele.
 Gab es Fortschritte die du an Board miterlebt hast?
 Ein möglicher Fortschritt war für die Spanierin, als wir in den südlichen Gewässern fuhren, hatten wir fliegende Fische. Die fliegenden Fische können sehr hoch und sehr weit springen und es gab solche die sprangen von der einen Seite, vom vorderen Teil des Schiffs und versuchten über das Schiff hinüber auf die andere Seite ins Meer zu springen oder zu fliegen und dann landeten einige Halt an Deck und verelendeten jämmerlich. Und die Spanierin ist Katholikin und das war des Teufels. Die war in Panik der „Teufel kommt uns holen“ und die Gruppe versuchten ihr klarzumachen, glaube hin oder her, diese Fische die springen die Fliegen buchstäblich und das hat mit dem Teufel nix zu tun. Und mit einigen zureden, konnte sie sich dann beruhigen.
@@ -107,15 +107,15 @@ Ein weiteres Beispiel das Jüngelchen liebte das Fischen. Er warf hinten am Heck
 Hat er dann darauf gehört schlussendlich, oder hat er nicht aufgehört? Nein.
 Auf Mindelo hatten wir dann Kessel und sie fischten Hummer und warfen die in Eimern mit Meerwasser. Auch da wieder versuchten wir den Jugendlichen zu sagen, hört auf Tiere zu fangen die wir dann anschließend nicht essen.
 
-\***-Was habt ihr alles für Aktivitäten an Bord gemacht?***
+\***\-Was habt ihr alles für Aktivitäten an Bord gemacht?***
 Segel setzen, Segel runternehmen, Segel in andere Richtung setzen, kochen, waschen, aufräumen, Kukarachas ein Ungeziefer jagen, Fischen, die Hygiene pflegen. Also wir waren vollauf beschäftigt mit dem ganz einfachen Alltag. 
 
-\***-Was hast du wen du an Bord warst und in die ferne geschaut hast gesehen und wie war die Atmosphäre für dich?*** 
+\***\-Was hast du wen du an Bord warst und in die ferne geschaut hast gesehen und wie war die Atmosphäre für dich?*** 
 Also das Meer hat mich durchgetragen, das andere war zeitweise jenseits der Kräfte, das war hardcore. Die Jugendlichen, die da weisst du eben nicht freundschaftlich waren, du musst ständig auf dem Kikwit sein, was machen sie wieder, wie geht’s, wer schlegt wenn zusammen weil irgendetwas nicht ganz auf der Linie ist.
 Aber das Meer hat mich durchgetragen. Wir sahen zum Beispiel mal eine Schildkröte weit draussen im Meer, um einem herum einfach Meer und noch mehr Meer. Wie wir uns Spanien Portugal wieder nährten, kam ein Schmetterling, draussen auf dem Meer ein Schmetterling. Ich kann vermuten ein Wind hat ihn dorthin mitgenommen.
 Als wir dan wieder im Mittelmehr wahren sahen wir Wale, auch als wir denn Atlantik runtersegelten. Das eine Jugendliche Mädchen war neben dem Kartenhaus bei der Reiling und ruft auf einmal „ein Wahl“ er ist neben dem Schiff geschwommen und aufgetaucht. 
 
-\***-Wie war ein Tages Ablauf auf dem Schiff?***
+\***\-Wie war ein Tages Ablauf auf dem Schiff?***
 Auf dem Schiff musste alles zu jeder Zeit überwacht werden.
 Die 24 Tages und Nachtstunden wurden zwischen uns Leitern in Schichten aufgeteilt.
 Der Skipper übernahm jeweils am Tag die Wache von 8 bis 12 und in der Nacht von 20 bis 24:00 Uhr also Mitternacht. Von 12:00 bis 16:00 Uhr respektive von 24:00 Uhr also Mitternacht bis 04:00 Uhr übernahm der Coskipper die Wache. Die Wachen von 16 bis 20:00 Uhr am Tag und 04:00 bis 08:00 Uhr am Tag übernahm ich. Die Schichten waren jeweils 4 Stunden. In diesen Stunden, war jeweils diese Person verantwortlich für das Gesamthafte. Ich hatte die schönste Wache. Weil während meiner Wache ging die Sonne unter, da konnte ich den Sonnenuntergang bewundern und kam die Sonne am anderen Tag wieder rauf da konnte ich den Sonnenaufgang bewundern. Das war einfach himmlisch,  also das hat mich entschädigt für vieles was da auf dem Schiff schiefging.
@@ -124,7 +124,7 @@ Der Skipper übernahm jeweils am Tag die Wache von 8 bis 12 und in der Nacht von
 Der Skipper war verantwortlich für das Schiff, also was der sagte das wurde umgesetzt, weil der war ein ganz hervorragender Kapitän, der alter deutsche Mann hatte eine Unmenge an Erfahrung. Auf dem Schiff gab es jegliche Sachen, zu tun je nach Wind je nach was gerade anfiel, musste der sagen was zu tun ist.
 Es galt auf dem Schiff zu haushalten, waschen, kochen und aufräumen. Wenn wir an Land legten, gingen wir einkaufen, das nennt man Bunkern. Als wir Bunkern gingen, mussten wir überlegen, wie lange die Fahrt bis zum nächsten Hafen dauert und Verzögerungen einberechnen, je nachdem wie der Wind mitmacht oder nicht. Wir mussten schauen, dass wir für diese Zeit genug Nahrungsmittel und was wir sonst noch brauchten kauften. Diese mussten lange haltbar sein und gut gelagert werden. Der Tag war geführt einfach mit dem Alltäglichen und alle mussten ran.
 
-\***-Wie war es für dich mit den Jugendlichen?*** Ich hatte die Verantwortung für sie zu sorgen. Also ich konnte ihnen sagen was zu tun ist. Wenn die Jungs das Gefühl hatten machen wir nicht, wir hören nicht auf eine Frau, bat ich denn Skipper denen das klarzumachen. Aber damit hatte ich nicht Mühe.
+\***\-Wie war es für dich mit den Jugendlichen?*** Ich hatte die Verantwortung für sie zu sorgen. Also ich konnte ihnen sagen was zu tun ist. Wenn die Jungs das Gefühl hatten machen wir nicht, wir hören nicht auf eine Frau, bat ich denn Skipper denen das klarzumachen. Aber damit hatte ich nicht Mühe.
 ***Und haben sie dich dann auch respektiert?***
 Ja doch doch, die hatten gemerkt sie können mich nicht kaufen, was ich sage, gilt Punkt. Im Gegensatz zu der Zahlmeisterin, weil sie erwischt wurde, konnten die Jugendlichen mit der machen was sie wollten. 
 
