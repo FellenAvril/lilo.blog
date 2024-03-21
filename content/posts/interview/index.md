@@ -12,7 +12,8 @@ description = ""
 
 ![](screenshot-183.jpg-1-.png)
 
-Segelschiff Tectona
+Segelschiff Tectona\
+
 Deutsch Reportage -Interview 
 
 ***Datum:*** 02.03.24
@@ -22,8 +23,6 @@ Deutsch Reportage -Interview
 ***Befragte Person:*** 
 Thérèse Zöller (Pseudonym) Auf Wunsch der Befragten Person wurde der Name geändert
 Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängigen
-
-![](screenshot-183.jpg-1-.png)
 
 Danke das du dir die Zeit nimmst um dieses Interview durchzuführen. 
 Sehr gerne, ich habe mich über die Anfrage gefreut. 
