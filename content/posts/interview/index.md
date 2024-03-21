@@ -4,6 +4,7 @@ date = "2024-03-15"
 draft = false
 pinned = false
 tags = []
+image = "img-20230529-wa0004.jpg"
 description = ""
 +++
 ***Weg von den Drogen in einen neuen Lebensabschnitt segeln  
