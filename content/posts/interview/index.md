@@ -14,8 +14,14 @@ description = ""
 
 Segelschiff Tectona
 Deutsch Reportage -Interview 
+
+
 ***Datum:*** 02.03.24
+
+
 ***Interviewerin:*** Fellen Avril Dickson 
+
+
 ***Befragte Person:*** 
 Thérèse Zöller (Pseudonym) Auf Wunsch der Befragten Person wurde der Name geändert
 Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängigen
@@ -35,8 +41,6 @@ Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fan
 
 ***Wie lange wart ihr dann in insgesamt zusammen unterwegs?*** 
 7 Monate, September 1994 bis März 1995.$
-
-
 
 ***\-Welche Route seid ihr mit dem Schiff gefahren und was habt ihr auf dem Weg entdeckt?***
 Von Mulin fuhren wir mit dem Zug über die Alpen. Dort sattelten wir die Velos und fuhren nach Villanueva bis zum Schiff, um sportlich aktiv zu sein, als Therapie für die Jugendlichen. Das Schiff war in Villanueva Spanien, das ist 30 Kilometer südlich von Barcelona. Da ging es das Mittelmeer runter und ankerten in Seeuta, das ist eine spanische Enklave auf dem afrikanischen Kontinent. Von Seeuta ging es dann weiter durch die Straße von Gibraltar zu Saopaulo der Inselgruppe von Madeira. Da hatten wir pech mit dem Wetter, es zerschlug ein Teil des Schiffs, das bevor wir weiterfahren konnten repariert werden musste. Dann nach Madeira und von Madeira runter zu den Kapverden. Und von den Kapverden rauf zu den Azoren. Von da aus steuerten wir auf Tanger zu. Weil wir dort ein Dokument stempeln mussten, dies war eine versicherungstechnische Frage, da wir ausserhalb der Europäischen Grenze am Segeln waren. Wir erreichten Tanger nicht, wir kehrten halbwegs zurück und gingen dann ins Mittelmeer. Hier konnten wir erneut wegen der Wetter und Windbedingungen nicht direkt nach Villanueva zurück. Wir mussten den Umweg fahren über die Balearen und dann nach den Balearen kamen wir wieder in Villanueva an. Von dort ging es dann per Zug nach Zürich, nach Hause.
