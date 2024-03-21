@@ -10,6 +10,8 @@ description = ""
 ***Weg von den Drogen in einen neuen Lebensabschnitt segeln*\
 *Die Segeltour als Terapie für Exdrogenabhängige***
 
+![](screenshot-183.jpg-1-.png)
+
 Segelschiff Tectona
 Deutsch Reportage -Interview 
 ***Datum:*** 02.03.24
