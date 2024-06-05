@@ -13,7 +13,7 @@ Denn es herrscht Krieg. Dies hat keinen eigentlichen Sieg. \
 Lass die Friedenstaube fliegen. 
 
 Mit Waffen zu schaffen, ist ne Manipulation, ne Illusion.  \
-Eine Division, die nicht aufgeht. Ein Durch –einander. \
+Eine Division, die nicht aufgeht. Ein Durch - einander. \
 Eine Addition, mit keinem Plus, nur einem Schuss.  \
 Ne Subtraktion, welche ein kleineres Resultat hat als am Start, es ist hart, dies ist keine Art. \
 Lass die Friedenstaube fliegen.  
@@ -36,7 +36,7 @@ Es ist zu mächtig, Menschen brechen unter der Last, sitzen im Knast, nichts meh
 Lass die Friedenstaube fliegen. 
 
 Der Schuss, der trifft und dabei zu 100% verfehlt. Es nimmt Tausende mit, dies ist ein Schnitt. Macht nicht mit. Dies ist eine Bitt. Den dabei spüren wir nur Litt.\
-Kinder, Brüder, Schwester, Söhne, Töchter, Väter, Mütter, Männer, Frauen, zurücklassen, verlassen-. Das bricht Herzen in Massen. Können's nicht fassen. Diese Menschen spüren Schmerzen, -im Herzen. \
+Kinder, Brüder, Schwester, Söhne, Töchter, Väter, Mütter, Männer, Frauen, zurücklassen, verlassen. - Das bricht Herzen in Massen. Können's nicht fassen. Diese Menschen spüren Schmerzen, - im Herzen. \
 Tausende fliehen, müssen sich verziehen. Dies ist nicht fair, sie haben keine Wehr.\
 Wir heissen sie willkommen, doch ihnen hat man alles genommen. Nur ein Gewand, nichts in der Hand, ziehen sie ins Land. Dies ist nicht fair, sie haben kein zuhause mehr. \
 Lass die Friedenstaube fliegen. 
@@ -48,7 +48,7 @@ Nur eine Zeitung, keine Leitung. Nur aus Papier, so blass wie ein Vampir.\
 Liegt im Bus, während dort abgeht der Schuss. Tränen im Augenwinkel, wegwischen. Seiten verblichen, Zeit verstrichen. \
 Verglichen mit anderen Zeitungsseiten, mit Werbung drauf, was steht zum Kauf?\
 Schuhe, Tasche, im Wert von Asche, Mode Katalog die nächste Episode.\
-20min vorbei-, während andere, die grosse Last tragen, und sich fragen, wie lange können wir’s noch ertragen? \
+20min vorbei, - während andere, die grosse Last tragen, und sich fragen, wie lange können wir’s noch ertragen? \
 Lass die Friedenstaube fliegen. 
 
 Was ist passiert? Dies was Krieg kreiert, es zieht hinunter, \
