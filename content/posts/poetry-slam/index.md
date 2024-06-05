@@ -5,8 +5,6 @@ draft = false
 pinned = false
 description = "\n"
 +++
-*Fellen Dickson (07. 06. 2024)*\
-*Poetry Slam*\
 ***Lass die Friedenstaube fliegen*** 
 
 Lass die Friedenstaube fliegen.  
