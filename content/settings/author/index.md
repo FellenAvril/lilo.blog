@@ -1,6 +1,6 @@
 +++
 headless = true
-name = "Fellen Avril"
+name = "Fellen Avril Dickson"
 image = "/img/default-author.jpg"
 url = "/about/"
 +++
