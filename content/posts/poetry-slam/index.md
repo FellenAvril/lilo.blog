@@ -9,7 +9,7 @@ description = "\n"
 
 Lass die Friedenstaube fliegen.  
 
-Denn es herrscht Krieg. Dies hat (keinen) eigentlichen Sieg. \
+Denn es herrscht Krieg. Dies hat kein eigentlichen Sieg. \
 Lass die Friedenstaube fliegen. 
 
 Mit Waffen zu schaffen, ist ne Manipulation, ne Illusion.  \
@@ -45,11 +45,9 @@ Nur ein Gewand, nichts in der Hand, ziehen sie ins Land. Dies ist nicht fair, si
 Lass die Friedenstaube fliegen. 
 
 Stories und Images auf dem Screen. News auf Medien, verzogen, - verlogen.\
-Dies ist ein schädlicher Dream, ein bösartiger Stream.  \
-(Lass die Friedenstaube fliegen.) \
+Dies ist ein schädlicher Dream, ein bösartiger Stream.\
 Nur eine Zeitung, keine Leitung. Nur aus Papier, so blass wie ein Vampir.\
-Liegt im Bus, während dort abgeht der Schuss. 
-
+Liegt im Bus, während dort abgeht der Schuss. \
 Tränen im Augenwinkel, - wegwischen. Seiten verblichen, Zeit verstrichen. \
 - Verglichen mit anderen Zeitungsseiten, mit Werbung drauf, was steht zum Kauf?\
 Schuhe, Tasche, im Wert von Asche. Mode Katalog, die nächste Episode.\
@@ -69,7 +67,7 @@ Aber dann ist es zu spät, still zu stehen. Die Zeit, an der Uhr, zurückzudrehe
 Bis der Zeiger bricht und ihr eurem Freund im Krieg verspricht, seine Nachricht zu hinterlassen, - bevor er euch wird, verlassen.  \
 Lass die Friedenstaube fliegen.
 
-\* Und dann, wenn wir im Himmel stehen, erst dann sehen wir die Welt vor unseren Augen drehen. Und dabei im selben Moment, unser eigenes Verhalten geschehen,- ne grausame Szene. \
+Und dann, wenn wir im Himmel stehen, erst dann sehen wir die Welt vor unseren Augen drehen. Und dabei im selben Moment, unser eigenes Verhalten geschehen,- ne grausame Szene. \
 Erst dann können wir ‘s verstehen.\
 Erst dann, wenn es zu spät ist, als man vergisst, sich mit schlechtem Gewissen verpisst, wenn man andere vermisst.\
 Wir hätten uns können verstehen, es war ein Versehen.\
@@ -82,7 +80,7 @@ Lass die Friedenstaube fliegen. 
 Nun braucht es Zusammenhalt, keine Gewalt. Verbreiten wir (gute) positive Energie stoppt die Phobie.             \
 Gebt euch doch die Hand. Alle haben zueinander irgendein Band. \
 Ob schwarz oder weiss, man braucht positive Energie, egal von welcher Ethnie.                               \
-Frieden bringt uns weiter, bringt uns auf eine goldene Leiter, (bringt uns weg vom/ nicht zum Scheiter.)         \
+Frieden bringt uns weiter, bringt uns weg vom Scheiter, bringt uns auf eine goldene Leiter.       \
 Licht durchbricht die Schicht der Dunkelheit, zu jeder Zeit, wir sind bereit.
 
 Lass die Friedenstaube fliegen!
