@@ -3,9 +3,12 @@ title = "Poetry Slam"
 date = "2024-06-05"
 draft = false
 pinned = false
+image = "img_0087.jpeg"
 description = "\n"
 +++
 ***Lass die Friedenstaube fliegen*** 
+
+![](img_0087.jpeg)
 
 Lass die Friedenstaube fliegen.  
 
@@ -38,21 +41,23 @@ Lass die Friedenstaube fliegen. 
 Der Schuss, der trifft und dabei zu 100% verfehlt. \
 Es nimmt Tausende mit, dies ist ein Schnitt. Macht nicht mit. Dies ist eine Bitt. Den dabei spüren wir nur Litt.\
 Kinder, Brüder, Schwester, Söhne, Töchter, Väter, Mütter, Männer, Frauen, zurücklassen, - verlassen. \
-- Das bricht Herzen in Massen. Können's nicht fassen. Diese Menschen spüren Schmerzen, - im Herzen. \
-Tausende fliehen, müssen sich verziehen. Dies ist nicht fair, sie haben keine Wehr.\
-Wir heissen sie willkommen, doch ihnen hat man alles genommen. \
-Nur ein Gewand, nichts in der Hand, ziehen sie ins Land. Dies ist nicht fair, sie haben kein zuhause mehr. \
-Lass die Friedenstaube fliegen. 
+
+* Das bricht Herzen in Massen. Können's nicht fassen. Diese Menschen spüren Schmerzen, - im Herzen. \
+  Tausende fliehen, müssen sich verziehen. Dies ist nicht fair, sie haben keine Wehr.\
+  Wir heissen sie willkommen, doch ihnen hat man alles genommen. \
+  Nur ein Gewand, nichts in der Hand, ziehen sie ins Land. Dies ist nicht fair, sie haben kein zuhause mehr. \
+  Lass die Friedenstaube fliegen. 
 
 Stories und Images auf dem Screen. News auf Medien, verzogen, - verlogen.\
 Dies ist ein schädlicher Dream, ein bösartiger Stream.\
 Nur eine Zeitung, keine Leitung. Nur aus Papier, so blass wie ein Vampir.\
 Liegt im Bus, während dort abgeht der Schuss. \
 Tränen im Augenwinkel, - wegwischen. Seiten verblichen, Zeit verstrichen. \
-- Verglichen mit anderen Zeitungsseiten, mit Werbung drauf, was steht zum Kauf?\
-Schuhe, Tasche, im Wert von Asche. Mode Katalog, die nächste Episode.\
-20min vorbei, - (während es dort abgeht ne schlegerei und) andere die grosse Last tragen, und sich fragen, wie lange können wir’s noch ertragen? \
-Lass die Friedenstaube fliegen. 
+
+* Verglichen mit anderen Zeitungsseiten, mit Werbung drauf, was steht zum Kauf?\
+  Schuhe, Tasche, im Wert von Asche. Mode Katalog, die nächste Episode.\
+  20min vorbei, - (während es dort abgeht ne schlegerei und) andere die grosse Last tragen, und sich fragen, wie lange können wir’s noch ertragen? \
+  Lass die Friedenstaube fliegen. 
 
 Was ist passiert? Dies was Krieg kreiert, es zieht hinunter, \
 wir kentern, obwohl so fern, es zerschmettert den goldenen Kern.\
