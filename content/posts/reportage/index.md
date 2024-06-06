@@ -16,7 +16,7 @@ Von: Fellen Avril Dickson\
 Über: Thérèse Zöller \*\**(Pseudonym)\
 Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängige
 
-![]()
+![](img_0085.jpeg)
 
 Die Reise auf der Tectona
 
@@ -37,18 +37,11 @@ Retour
 
 runter bis nach Seeuta eine spanische Enklave auf dem Afrikanischem Kontinent, durch die Strasse von Gibraltar nach Saopaulo der Inselgruppe von Madeira, runter zu den Kapverden, rauf zu den Azoren auf Tanger zu und dann über die Balearen retour. Auf dem Weg Diese Tour war begleitet von hartem Unwetter und schlechten Windbeddingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil unseres Schiffes und erst nach dem wir es repariert hatten konnten wir unsere Reise fortsetzen. Nun fuhren sie übers offene Meer. Jeder Tag ist ein neues Abendteuer gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt.
 
- 
-
- 
-
 ![]()
 
 Route:\
+
 1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden, 8. Sao Palo   
-
- 
-
- 
 
 \-Sie wuschen, schruppen, kochten, bunkern essen für die nächsten Tage ihrer Reise.\
 Hier müssen sie lernen den Herausforderungen ins Auge zu schauen, mit dem haben sie zu kämpfen. Auf dem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen.\
