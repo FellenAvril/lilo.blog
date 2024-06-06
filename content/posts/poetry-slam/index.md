@@ -48,8 +48,9 @@ Stories und Images auf dem Screen. News auf Medien, verzogen, - verlogen.\
 Dies ist ein schädlicher Dream, ein bösartiger Stream.  \
 (Lass die Friedenstaube fliegen.) \
 Nur eine Zeitung, keine Leitung. Nur aus Papier, so blass wie ein Vampir.\
-Liegt im Bus, während dort abgeht der Schuss. \
-- Tränen im Augenwinkel, - wegwischen. Seiten verblichen, Zeit verstrichen. \
+Liegt im Bus, während dort abgeht der Schuss. 
+
+Tränen im Augenwinkel, - wegwischen. Seiten verblichen, Zeit verstrichen. \
 - Verglichen mit anderen Zeitungsseiten, mit Werbung drauf, was steht zum Kauf?\
 Schuhe, Tasche, im Wert von Asche. Mode Katalog, die nächste Episode.\
 20min vorbei, - (während es dort abgeht ne schlegerei und) andere die grosse Last tragen, und sich fragen, wie lange können wir’s noch ertragen? \
