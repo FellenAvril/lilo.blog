@@ -3,6 +3,7 @@ title = "Reportage"
 date = "2024-03-01"
 draft = false
 pinned = false
+image = "img_0085.jpeg"
 +++
 **\-Reportage Rohfassung**
 
