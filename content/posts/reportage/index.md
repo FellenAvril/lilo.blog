@@ -7,14 +7,12 @@ image = "img_0085.jpeg"
 +++
 \-Reportage Rohfassung
 
-Weg von den Drogen in einen neuen Lebensabschnitt segeln 
+**Weg von den Drogen in einen neuen Lebensabschnitt segeln** 
 
-Segeltour für Drogenabhängige nach Entzug
+**Segeltour für Drogenabhängige nach Entzug**
 
 Deutsch Reportage -Rohfassung\
-Datum: 02.03.24\
-Von: Fellen Avril Dickson\
-Über: Thérèse Zöller \*\**(Pseudonym)\
+Über: Thérèse Zöller (Pseudonym)\
 Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängige
 
 ![](img_0085.jpeg)
@@ -41,14 +39,10 @@ Retour
 
 runter bis nach Seeuta eine spanische Enklave auf dem Afrikanischem Kontinent, durch die Strasse von Gibraltar nach Saopaulo der Inselgruppe von Madeira, runter zu den Kapverden, rauf zu den Azoren auf Tanger zu und dann über die Balearen retour. Auf dem Weg Diese Tour war begleitet von hartem Unwetter und schlechten Windbeddingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil unseres Schiffes und erst nach dem wir es repariert hatten konnten wir unsere Reise fortsetzen. Nun fuhren sie übers offene Meer. Jeder Tag ist ein neues Abendteuer gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt.
 
- 
 
- 
 
 Route:\
-1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden, 8. Sao Palo   
-
- 
+1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden, 8. Sao Palo 
 
  
 
@@ -62,10 +56,9 @@ Die Jugendliche müssen die Versuchung meiden wieder in die Alten Muster zu fall
 
 Zu jeder Zeit aufmerksam zu sein, ist eine harte Challenge. Es ist eine grosse Verantwortung, die schwer auf den Schultern lastet. Man will sie gerecht werden und die Jugendlichen auf der Reise begleiten und sicher wieder zurückbringen. In der Hoffnung, sie können es packen, wieder in die Gesellschaft einzusteigen. Damit sie ihr eigenes Leben führen können.
 
-\
--Die Jugendlichen erwischten die Zahlmeisterin beim Drogenkonsum. Das war für sie gefundenes fressen, welches sie zu ihren Gunsten gebrauchten. Die Zahlmeisterin war schwach und abhängig, diese schwäche brauchten sie gegen sie. Sie hatten sie direkt unter Kontrolle und konnten uns so hinter dem Rücken gehen.\
-Das setzte das Konzept ausser Balance die Jugendlichen hatten sie unter Kontrolle und konnten hinter unseren rücken gehen. Dies gab ein riss in unsere Reise, ein Strich durch die Rechnung. Vertrauen ging verloren und die Zahlmeister musste fristlos gehen.\
-\
+\-Die Jugendlichen erwischten die Zahlmeisterin beim Drogenkonsum. Das war für sie gefundenes fressen, welches sie zu ihren Gunsten gebrauchten. Die Zahlmeisterin war schwach und abhängig, diese schwäche brauchten sie gegen sie. Sie hatten sie direkt unter Kontrolle und konnten uns so hinter dem Rücken gehen.\
+Das setzte das Konzept ausser Balance die Jugendlichen hatten sie unter Kontrolle und konnten hinter unseren rücken gehen. Dies gab ein riss in unsere Reise, ein Strich durch die Rechnung. Vertrauen ging verloren und die Zahlmeister musste fristlos gehen.
+
 Jeder kann in Drogen reinschlittern und dies wird einem früher oder später zum Verhängnis, denn sie sind unkontrollierbar und ziehen dich in die Bahn. Dies zu vermeiden oder entkommen braucht kraft, aber es lohnt sich den so findet man wieder die wichtigen Werte in deinem Leben. Ansonsten rauscht es an dir vorbei.
 
 \-Der Schritt weg von den Drogen ist ein grosser und es ist einfach wieder hereinzuschlittern. Die Jugendliche sind instabil und hängen an einem Faden. Sie drücken sich mit grosser Frustration, Wut und ein Haufen Emotionen aus.\
@@ -78,6 +71,8 @@ Auch das Wetter hatte seine Schwankungen, auch hiermit mussten wir uns auseinand
 
 was sowohl die in der Norm etwas bringen können.\
 dass jeder eine zweite Chance verdient. -einer
+
+> ‘’Ausserhalb der Norm liegt etwas von enormer Wichtigkeit, auch für die in der Norm.’’
 
 Die Sonne wärmte ihre Lederjacke, nun tritt sie hinein in den lebendigen Zürcher Bahnhof, ihr stets noch wachsamer Blick schweift durch die Menschenmenge und hier erblickt sie, dass Jüngelchen der Segeltörn, nun ist er junger Mann. Sein Blick ist auf seine Freundin gerichtet, mit der er Arm in Arm durch die Bahnhofshalle schlendert. Ein Lächeln, wie sie es auf der Segeltörn noch nicht nie gesehen hatte, auf seinem Gesicht, er hat es gepackt. Die lauten Stimmen der umherhuschenden Leute treten in den Hintergrund und verstummen. Zu wissen das einer der Jugendlichen es geschafft hat, auch nur einer, wen es nur einer ist, der es schafft, ist dies die grösste Belohnung. Dies zeigte mir, dass sich die harte Arbeit ausgezahlt hatte und dass sich die Segeltörn gelohnt hat.\
 Es fühlte sich an, als sickerte die Wärme der Sonnenstrahlen durch ihre Jacke, auch wenn sie hier im Bahnhof nicht zu sehen war. Und obwohl sie nicht mehr auf dem Schiff war, spürt sie das Schwanken der Wellen und sieht die Sonne wie sie untergeht.\
