@@ -33,18 +33,16 @@ Nun schweift ihr Blick zurück an Bord, den Herausforderungen entgegen.\
 Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und fünf Männer, 17- bis 25-jährige Spanier und Schweizer. Sie haben viel erlebt und angerichtet, bis sie von den Jugendanwaltschaften auf diesen Törn geschickt wurden.
 
 \
--Eine Jugendliche beobachtet fliegende Fische, wie sie über das Deck springen, hinauf in den Himmel. Schaut man zum Himmel hinauf, sieht man die grossen Masten und die Segel in ihren prächtigen Farben von Weinrot zu Safran gelb, welche die Crew über die offenen Meere tragen. Von Spanien Vilanova i la Geltrú, übers Alboràn Meer durch die Strase von Gibraltar, nach Almeria, weiter nach Ceuta eine spanische Enklave an der nordafrikanischen Küste, weiter nach Gibraltar an der Südküste Spaniens, zu den Inseln in Portugal Madeira und Parto Santo, danach zu der Inselgruppe in Afrika Capo Verde, dann weiter Richtung Azoren. Auf dem Rückweg legten wir auch bei Hafen von Horta auf der Insel Faial
+-Eine Jugendliche beobachtet fliegende Fische, wie sie über das Deck springen, hinauf in den Himmel. Schaut man zum Himmel hinauf, sieht man die grossen Masten und die Segel in ihren prächtigen Farben von Weinrot zu Safran gelb, welche die Crew über die offenen Meere tragen. \
+Von Spanien Vilanova i la Geltrú, übers Alboràn Meer durch die Strase von Gibraltar, nach Almeria, weiter nach Ceuta eine spanische Enklave an der nordafrikanischen Küste, weiter nach Gibraltar an der Südküste Spaniens, zu den Inseln in Portugal Madeira und Parto Santo, danach zu der Inselgruppe in Afrika Capo Verde, dann weiter Richtung Azoren. Auf dem Rückweg legten wir auch beim Hafen von Horta an auf der Insel Faial danach ging es nach Maroko
 
 Retour
 
 runter bis nach Seeuta eine spanische Enklave auf dem Afrikanischem Kontinent, durch die Strasse von Gibraltar nach Saopaulo der Inselgruppe von Madeira, runter zu den Kapverden, rauf zu den Azoren auf Tanger zu und dann über die Balearen retour. Auf dem Weg Diese Tour war begleitet von hartem Unwetter und schlechten Windbeddingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil unseres Schiffes und erst nach dem wir es repariert hatten konnten wir unsere Reise fortsetzen. Nun fuhren sie übers offene Meer. Jeder Tag ist ein neues Abendteuer gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt.
 
-
-
 Route:\
-1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden, 8. Sao Palo 
 
- 
+1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden, 8. Sao Palo 
 
 \-Sie wuschen, schruppen, kochten, bunkern essen für die nächsten Tage ihrer Reise.\
 Hier müssen sie lernen den Herausforderungen ins Auge zu schauen, mit dem haben sie zu kämpfen. Auf dem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen.\
