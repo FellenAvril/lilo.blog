@@ -10,7 +10,7 @@ description = ""
 # ***Weg von den Drogen*** \
 ***in einen neuen Lebensabschnitt segeln***
 
-## Die Segeltour als Therapie für Exdrogenabhängige
+## *Die Segeltour als Therapie für Exdrogenabhängige*
 
 ![](screenshot-183.jpg-1-.png "Segelschiff Tectona")
 
