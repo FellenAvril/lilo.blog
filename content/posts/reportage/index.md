@@ -8,7 +8,7 @@ image = "img_0085.jpeg"
 +++
 **Weg von den Drogen in einen neuen Lebensabschnitt segeln** 
 
-**Segeltour für Drogenabhängige nach Entzug**
+Segeltour für Drogenabhängige im Entzug
 
 > \
 > Über: Thérèse Zöller (Pseudonym), 73 jährig, lebt am Thunersee\
