@@ -11,8 +11,9 @@ image = "img_0085.jpeg"
 Segeltour für Drogenabhängige im Entzug
 
 > \
-> Über: Thérèse Zöller (Pseudonym), 73 jährig, lebt am Thunersee\
-> Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängige
+> Dies ist die Reise von Thérèse Zöller (Pseudonym) Sie ist 73 jährig und lebt am Thunersee. \
+> Schon immer war sie begeistert von Schiffen und liebte das Meer, selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
+> Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei.
 
 ![](img_0085.jpeg)
 
