@@ -64,7 +64,7 @@ Bei ihren Wachen blickt Therese Zöller Tag und nachts, über das Meer und erbli
 ***Outcome:***\
 -Diese Reise war eine Bereicherung es gab einem einen Einblick ausserhalb von 0815, welches wertvoll ist und sich lohnt, auch für die in der Norm. Gerade dort mag das Liegen, wovon man etwas lernen kann. Jeder verdient eine zweite Chance und es ist ein schönes Erlebnis, den Jugendlichen durch diese Segeltour eine zu geben.\
 (was sowohl die in der Norm etwas bringen können.\
-dass jeder eine zweite Chance verdient. -einer)
+dass jeder eine zweite Chance verdient. -einer))
 
 > ‘’Ausserhalb der Norm liegt etwas von enormer Wichtigkeit, auch für die in der Norm.’’
 
