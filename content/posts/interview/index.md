@@ -4,7 +4,7 @@ date = "2024-03-15"
 draft = false
 pinned = false
 tags = ["Interview", "Segeltour", "Drogenabhängige"]
-image = "screenshot-183.jpg-1-.png"
+image = "img_0028.jpeg"
 description = ""
 +++
 ***Weg von den Drogen in einen neuen Lebensabschnitt segeln***\
