@@ -3,6 +3,7 @@ title = "Reportage"
 date = "2024-03-01"
 draft = false
 pinned = false
+tags = ["Reportage", "Segeltour", "Drogenabhängige"]
 image = "img_0085.jpeg"
 +++
 **Weg von den Drogen in einen neuen Lebensabschnitt segeln** 
