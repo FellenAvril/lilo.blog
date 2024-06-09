@@ -19,7 +19,7 @@ image = "img_0085.jpeg"
 
 ***Die Reise auf der Tectona:***\
 -(Die Aufgehede Sonne am Horizont.) Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.\
--Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der Organisation Plus Schweizer Jugend zur See geführt wird.
+-Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der Organisation Plus Schweizer Jugend zur See geführt wird.  
 
 ***Augaben der Leiter:***\
 -Sie als Soziapädagogin ist verantwortlich für das Verhalten der Jugendlichen, die weiteren Begleiter sind der erfahrene Kapitän, der das Sagen übers Schiff hat, der Co-Skipper der auf dem Deck arbeitet, und die Zahlmeisterin, die die Verantwortung hat, das Journal zu führen.\
