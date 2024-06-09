@@ -3,12 +3,12 @@ title = "Interview"
 date = "2024-03-15"
 draft = false
 pinned = false
-tags = []
+tags = ["Interview", "Segeltour", "Drogenabhängige"]
 image = "screenshot-183.jpg-1-.png"
 description = ""
 +++
 ***Weg von den Drogen in einen neuen Lebensabschnitt segeln***\
-Die Segeltour als Therapie für Exdrogenabhängige
+Die Segeltour als Therapie für Drogenabhängige
 
 ![](screenshot-183.jpg-1-.png "Segelschiff Tectona")
 
@@ -99,7 +99,7 @@ Also das war ein sehr schlechtes Beispiel für die Jugendliche.
 Haben sie auch daraus gelernt, das sie als konzequenz gehen musste? 
 Ja, du wirst erwischt und dann fertig. Dass war eine Möglichkeit daraus zu lernen, die Folge war das wir einen Monat auf Mindelo festsassen. 
 
-\***-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
+\***\-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
 Sie hatten die Gelegenheit zu lernen wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässigkeit zu übernehmen, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und sünele.
 Gab es Fortschritte die du an Board miterlebt hast?
 Ein möglicher Fortschritt war für die Spanierin, als wir in den südlichen Gewässern fuhren, hatten wir fliegende Fische. Die fliegenden Fische können sehr hoch und sehr weit springen und es gab solche die sprangen von der einen Seite, vom vorderen Teil des Schiffs und versuchten über das Schiff hinüber auf die andere Seite ins Meer zu springen oder zu fliegen und dann landeten einige Halt an Deck und verelendeten jämmerlich. Und die Spanierin ist Katholikin und das war des Teufels. Die war in Panik der „Teufel kommt uns holen“ und die Gruppe versuchten ihr klarzumachen, glaube hin oder her, diese Fische die springen die Fliegen buchstäblich und das hat mit dem Teufel nix zu tun. Und mit einigen zureden, konnte sie sich dann beruhigen.
@@ -129,7 +129,7 @@ Es galt auf dem Schiff zu haushalten, waschen, kochen und aufräumen. Wenn wir a
 ***Und haben sie dich dann auch respektiert?***
 Ja doch doch, die hatten gemerkt sie können mich nicht kaufen, was ich sage, gilt Punkt. Im Gegensatz zu der Zahlmeisterin, weil sie erwischt wurde, konnten die Jugendlichen mit der machen was sie wollten. 
 
-\***-In dieser Zeit die du für dich hattest was hast du gemacht, damit du dich besser fühlst?*** 
+\***\-In dieser Zeit die du für dich hattest was hast du gemacht, damit du dich besser fühlst?*** 
 Gebetet und wir hatten auch wenn wir dann an Land waren, einige Freitage wo eins der Erwachsen sich von dieser Gruppe entfernen durfte und zum Beispiel in einem Hotel schlafen gehen konnte, bevor man wieder zurückkehrte zu der Gruppe und ein anderer Erwachsene in die Freitage ging. Das, was auf dem Schiff mit den Jugendlichen Tag täglich Nacht nächtlich abging, war so eine Anspannung. Dass diese Freitage dazu dienten diese Spannung etwas loszulassen. Ich mag mich an eine Situation erinnern wo ich in einem Hotel ein Bad nahm und das war sowas von erlösend. Dieses Bad, wusste ich so zu schätzen. Einfach ausruhen. 
 Du hattest also einen,Tag für dich alleine wo du dann im Hotel übernachten konntest, 
 ***Was hast du sonst noch erlebt an diesen Freitagen?***
@@ -137,7 +137,7 @@ Als wir auf den Kanaren im Hafen anlegten, mietete ich in der Hauptstadt für me
 -Wie konntest du denn Jugendlichen helfen?
 Indem dass ich authentisch, gerecht, nett und mit Zuwendung aber nicht Zuwendung die du dann um den Finger wickeln kannst, gegenüber trat. 
 
-\***-Was hat die Jugendliche belastet, was waren die Herausforderungen für sie?***
+\***\-Was hat die Jugendliche belastet, was waren die Herausforderungen für sie?***
 Also die Herausforderungen waren ganz klar aktiv am Segeln mitzumachen. Ihre Aufgaben klar, gut, zuverlässig und vor allem auszuführen.
 ***Haben sie dass was sie belastet, ausgedrückt?***
 Ja das kam dann in nicht nur in Worten, weisst du im netten Sätzen zum Ausdruck, das kommt dann mit Wucht zum Ausdruck. Die aktuellen Situationen lösten bei ihnen etwas aus, hinzu kam noch die Belastung aus ihrer Vergangenheit.
