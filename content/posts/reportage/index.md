@@ -6,9 +6,10 @@ pinned = false
 tags = ["Reportage", "Segeltour", "Drogenabhängige"]
 image = "img_0085.jpeg"
 +++
-***Weg von den Drogen in einen neuen Lebensabschnitt segeln*** 
+# ***Weg von den Drogen*** \
+***in einen neuen Lebensabschnitt segeln*** 
 
-*Segeltour für Drogenabhängige im Entzug*
+## ***Segeltour für Drogenabhängige im Entzug***
 
 > Dies ist die Reise von Thérèse Zöller (Pseudonym) Sie ist 73 jährig und lebt am Thunersee. \
 > Schon immer war sie begeistert von Schiffen und liebte das Meer, selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
