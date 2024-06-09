@@ -19,7 +19,7 @@ Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängige
 
 Die Reise auf der Tectona
 
-(Die Aufgehede Sonne am Horizont.) Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reiling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.\
+(Die Aufgehede Sonne am Horizont.) Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.\
 Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der Organisation Plus Schweizer Jugend zur See geführt wird.
 
 Sie als Soziapädagogin ist verantwortlich für das Verhalten der Jugendlichen, die weiteren Begleiter sind der erfahrene Kapitän, der das Sagen übers Schiff hat, der Co-Skipper der auf dem Deck arbeitet, und die Zahlmeisterin, die die Verantwortung hat, das Journal zu führen.\
@@ -27,7 +27,7 @@ Dieser Segeltörn dient als anschliessende Therapie für Drogenabhängige Jugend
 
 Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hin-und Her schwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden. Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum, das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
 
-Eine Angelschnur (schnallt schweift) durch die Luft. Da fällt ihr Fokus auf dem Jüngsten der Jugendlichen. Er wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor.\
+Eine Angelschnur schnallt durch die Luft. Da fällt ihr Fokus auf dem Jüngsten der Jugendlichen. Er wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor.\
 Nun schweift ihr Blick zurück an Bord, den Herausforderungen entgegen.\
 Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und fünf Männer, 17- bis 25-jährige Spanier und Schweizer. Sie haben viel erlebt und angerichtet, bis sie von den Jugendanwaltschaften auf diesen Törn geschickt wurden. Um wegzukommen von ihren alten Muster.
 
@@ -35,7 +35,7 @@ Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und
 -Eine Jugendliche beobachtet fliegende Fische, wie sie über das Deck springen, hinauf in den Himmel. Schaut man zum Himmel hinauf, sieht man die grossen Masten und die Segel in ihren prächtigen Farben von Weinrot zu Safran gelb, welche die Crew über die offenen Meere tragen. 
 
 \
-Von Spanien Vilanova i la Geltrú, übers Alboràn Meer durch die Strase von Gibraltar, nach Almeria, weiter nach Ceuta eine spanische Enklave an der nordafrikanischen Küste, weiter nach Gibraltar an der Südküste Spaniens, zu den Inseln in Portugal Madeira und Parto Santo, danach zu der Inselgruppe in Afrika Capo Verde, dann weiter Richtung Azoren. Auf dem Rückweg legten wir auch beim Hafen von Horta an auf der Insel Faial danach ging es nach Maroko
+Von Spanien Vilanova i la Geltrú, übers Alboràn Meer, durch die Strase von Gibraltar, nach Almeria, weiter nach Ceuta eine spanische Enklave an der nordafrikanischen Küste, weiter nach Gibraltar an der Südküste Spaniens, zu den Inseln in Portugal Madeira und Parto Santo, danach zu der Inselgruppe in Afrika Capo Verde, dann weiter Richtung Azoren. Auf dem Rückweg legten sie auch beim Hafen von Horta an auf der Insel Faial, danach ging es nach Maroko
 
 Retour
 
@@ -45,8 +45,8 @@ Route:\
 
 1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden, 8. Sao Palo 
 
-\-Sie wuschen, schruppen, kochten, bunkern essen für die nächsten Tage ihrer Reise.\
-Hier müssen sie lernen den Herausforderungen ins Auge zu schauen, mit dem haben sie zu kämpfen. Auf dem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen.\
+\-Sie waschen, schruppen, kochen und bunkern Nahrung für die nächsten Tage ihrer Reise.\
+Hier müssen sie lernen den Herausforderungen ins Auge zu schauen und dem Alltag zu Meister. Mit dem haben sie zu kämpfen. Auf dem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen.\
 Aber bei jeder Chance, die sie kriegen, versuchen sie, einen Ausweg zu finden, an ihre Gewohnheiten der Vergangenheit sind sie immer noch stark gebunden und das Verlangen nach dem Konsum von Drogen bleibt pressent. -Sie nehmen es in Versuchung den Begleitern, um den Finger zu wickeln uns hinters Licht rücken zu gehen.\
 Als wir Unterwegs an den Hafen anlegten, kam das Land in Sicht und die Verlockung kam\
 zurück, die Drogenhändler, die versuchten, auf unser Schiff zu gelangen und Ihnen Drogen zu überreichen, diese musste man mit den Paddeln weg scheuen. Es gelang nicht immer, alle Drogen fernzuhalten, auch Alkohol kam ins Spiel. Die Jugendlichen haben schlaue Pläne geschmiedet und eines nachts entpuppten sich, das sie die Unschuldig aussehenden Tetrapacks mit Wein gefüllt hatten, Weinrot wie die Segel. Damit füllten sie sich ab und der Jüngste viel in ein Delirium, die Crew musste gemeinsam anpacken, um ihn aus diesem kritischen Zustand zu helfen.
