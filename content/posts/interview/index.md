@@ -21,7 +21,7 @@ Segelschiff Tectona
 > ***Interviewerin:*** Fellen Avril Dickson
 >
 > ***Befragte Person:*** 
-> Thérèse Zöller (Pseudonym) Auf Wunsch der Befragten Person wurde der Name geändert
+> Thérèse Zöller (Pseudonym) Auf Wunsch der Befragten Person wurde der Name geändert\
 > Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängigen
 
 Danke das du dir die Zeit nimmst um dieses Interview durchzuführen. 
