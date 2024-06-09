@@ -19,21 +19,22 @@ Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängige
 
 Die Reise auf der Tectona
 
-Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reiling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.\
+(Die Aufgehede Sonne am Horizont.) Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reiling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.\
 Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der Organisation Plus Schweizer Jugend zur See geführt wird.
 
 Sie als Soziapädagogin ist verantwortlich für das Verhalten der Jugendlichen, die weiteren Begleiter sind der erfahrene Kapitän, der das Sagen übers Schiff hat, der Co-Skipper der auf dem Deck arbeitet, und die Zahlmeisterin, die die Verantwortung hat, das Journal zu führen.\
 Dieser Segeltörn dient als anschliessende Therapie für Drogenabhängige Jugendliche nach dem Entzug.
 
-Hier steht sie auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hin-und Her schwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden.\
-Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum, das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
+Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hin-und Her schwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden. Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum, das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
 
-Der Jüngste der Jugendliche wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor.\
+Eine Angelschnur (schnallt schweift) durch die Luft. Da fällt ihr Fokus auf dem Jüngsten der Jugendlichen. Er wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor.\
 Nun schweift ihr Blick zurück an Bord, den Herausforderungen entgegen.\
-Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und fünf Männer, 17- bis 25-jährige Spanier und Schweizer. Sie haben viel erlebt und angerichtet, bis sie von den Jugendanwaltschaften auf diesen Törn geschickt wurden.
+Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und fünf Männer, 17- bis 25-jährige Spanier und Schweizer. Sie haben viel erlebt und angerichtet, bis sie von den Jugendanwaltschaften auf diesen Törn geschickt wurden. Um wegzukommen von ihren alten Muster.
 
 \
--Eine Jugendliche beobachtet fliegende Fische, wie sie über das Deck springen, hinauf in den Himmel. Schaut man zum Himmel hinauf, sieht man die grossen Masten und die Segel in ihren prächtigen Farben von Weinrot zu Safran gelb, welche die Crew über die offenen Meere tragen. \
+-Eine Jugendliche beobachtet fliegende Fische, wie sie über das Deck springen, hinauf in den Himmel. Schaut man zum Himmel hinauf, sieht man die grossen Masten und die Segel in ihren prächtigen Farben von Weinrot zu Safran gelb, welche die Crew über die offenen Meere tragen. 
+
+\
 Von Spanien Vilanova i la Geltrú, übers Alboràn Meer durch die Strase von Gibraltar, nach Almeria, weiter nach Ceuta eine spanische Enklave an der nordafrikanischen Küste, weiter nach Gibraltar an der Südküste Spaniens, zu den Inseln in Portugal Madeira und Parto Santo, danach zu der Inselgruppe in Afrika Capo Verde, dann weiter Richtung Azoren. Auf dem Rückweg legten wir auch beim Hafen von Horta an auf der Insel Faial danach ging es nach Maroko
 
 Retour
