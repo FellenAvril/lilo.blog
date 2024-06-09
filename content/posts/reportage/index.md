@@ -10,9 +10,9 @@ image = "img_0085.jpeg"
 
 **Segeltour für Drogenabhängige nach Entzug**
 
-Deutsch Reportage -Rohfassung\
-Über: Thérèse Zöller (Pseudonym)\
-Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängige
+> \
+> Über: Thérèse Zöller (Pseudonym)\
+> Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängige
 
 ![](img_0085.jpeg)
 
