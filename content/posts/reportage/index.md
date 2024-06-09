@@ -36,6 +36,8 @@ Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und
 \
 Von Spanien: **Vilanova i la Geltrú**, segelten sie übers **Alboràn Meer**, durch die **Strasse von Gibraltar**, nach **Almeria**, weiter nach **Ceuta** eine spanische Enklave an der nordafrikanischen Küste, weiter nach **Gibraltar** an der Südküste Spaniens, zu den Inseln in Portugal: **Madeira** und **Parto Santo**, danach ankerten sie bei der Inselgruppe in Afrika: **Capo Verde** und steuerten weiter Richtung **Azoren**. Auf dem Rückweg mussten sie einen Umweg über die **Balearen** machen und legten beim **Hafen von Horta** an auf der Insel **Faial**, sie ankerten auch in **Pico** und **Càdiz**, danach ging es weiter Richtung Marokko: **Tanger**, und schliesslich über die Spanischen Inseln **Formentera** und **Ibiza** Retour.
 
+![](img_0028.jpeg)
+
 Route:\ 1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden 
 
 Auf dem Weg, wurde die Tour begleitet von hartem Unwetter und schlechten Windbedingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil des Schiffes und erst nach dem man es repariert hatte, konnte die Crew die Reise fortsetzen. Sie fuhren übers offene Meer. Jeder Tag ist ein neues Abendteuer, gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt.
