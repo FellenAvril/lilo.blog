@@ -3,6 +3,7 @@ title = "Poetry Slam"
 date = "2024-06-05"
 draft = false
 pinned = false
+tags = ["PoetrySlam", "Friedenstaube"]
 image = "img_0087.jpeg"
 description = "\n"
 +++
