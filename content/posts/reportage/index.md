@@ -35,19 +35,19 @@ Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und
 -Eine Jugendliche beobachtet fliegende Fische, wie sie über das Deck springen, hinauf in den Himmel. Schaut man zum Himmel hinauf, sieht man die grossen Masten und die Segel in ihren prächtigen Farben von Weinrot zu Safran gelb, welche die Crew über die offenen Meere tragen. 
 
 \
-Von Spanien **Vilanova i la Geltrú**, segelten sie übers **Alboràn Meer**, durch die **Strasse von Gibraltar**, nach **Almeria**, weiter nach **Ceuta** eine spanische Enklave an der nordafrikanischen Küste, weiter nach **Gibraltar** an der Südküste Spaniens, zu den Inseln in Portugal **Madeira** und **Parto Santo**, danach ankerten sie bei der Inselgruppe in Afrika **Capo Verde** und steuerten weiter Richtung **Azoren**. Auf dem Rückweg legten sie beim Hafen von **Horta** an auf der Insel **Faial**, sie ankerten auch in **Pico** und **Càdiz**, danach ging es weiter Richtung Marokko **Tanger** und schliesslich über die Spanischen Inseln **Formentera** und **Ibiza** Retour.
+Von Spanien **Vilanova i la Geltrú**, segelten sie übers **Alboràn Meer**, durch die **Strasse von Gibraltar**, nach **Almeria**, weiter nach **Ceuta** eine spanische Enklave an der nordafrikanischen Küste, weiter nach **Gibraltar** an der Südküste Spaniens, zu den Inseln in Portugal **Madeira** und **Parto Santo**, danach ankerten sie bei der Inselgruppe in Afrika **Capo Verde** und steuerten weiter Richtung **Azoren**. Auf dem Rückweg msussten sie einen Umweg über die **Balearen** machen und legten beim **Hafen von Horta** an auf der Insel **Faial**, sie ankerten auch in **Pico** und **Càdiz**, danach ging es weiter Richtung Marokko **Tanger** und schliesslich über die Spanischen Inseln **Formentera** und **Ibiza** Retour.
 
-Retour
+(runter bis nach Seeuta eine spanische Enklave auf dem Afrikanischem Kontinent, durch die Strasse von Gibraltar nach Saopaulo der Inselgruppe von Madeira, runter zu den Kapverden, rauf zu den Azoren auf Tanger zu und dann über die Balearen retour.)
 
-runter bis nach Seeuta eine spanische Enklave auf dem Afrikanischem Kontinent, durch die Strasse von Gibraltar nach Saopaulo der Inselgruppe von Madeira, runter zu den Kapverden, rauf zu den Azoren auf Tanger zu und dann über die Balearen retour. Auf dem Weg Diese Tour war begleitet von hartem Unwetter und schlechten Windbeddingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil unseres Schiffes und erst nach dem wir es repariert hatten konnten wir unsere Reise fortsetzen. Nun fuhren sie übers offene Meer. Jeder Tag ist ein neues Abendteuer gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt.
+Auf dem Weg, war dieser Tour, begleitet von hartem Unwetter und schlechten Windbeddingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil des Schiffes und erst nach dem man es repariert hatte konnte die Crew die Reise fortsetzen. Nun fuhren sie übers offene Meer. Jeder Tag ist ein neues Abendteuer gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt.
 
 Route:\
 
 1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden, 8. Sao Palo 
 
 \-Sie waschen, schruppen, kochen und bunkern Nahrung für die nächsten Tage ihrer Reise.\
-Hier müssen sie lernen den Herausforderungen ins Auge zu schauen und dem Alltag zu Meister. Mit dem haben sie zu kämpfen. Auf dem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen.\
-Aber bei jeder Chance, die sie kriegen, versuchen sie, einen Ausweg zu finden, an ihre Gewohnheiten der Vergangenheit sind sie immer noch stark gebunden und das Verlangen nach dem Konsum von Drogen bleibt pressent. -Sie nehmen es in Versuchung den Begleitern, um den Finger zu wickeln uns hinters Licht rücken zu gehen.\
+Hier müssen sie lernen den Herausforderungen ins Auge zu schauen (und den Alltag zu Meistern). Mit dem haben sie zu kämpfen. Auf dem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen.\
+Aber bei jeder Chance, die sie kriegen, versuchen sie, einen Ausweg zu finden. An ihren Gewohnheiten der Vergangenheit sind sie noch immer stark gebunden und das Verlangen nach dem Konsum von Drogen bleibt pressent. -Sie nehmen es in Versuchung den Begleitern, um den Finger zu wickeln uns hinters Licht rücken zu gehen.\
 Als wir Unterwegs an den Hafen anlegten, kam das Land in Sicht und die Verlockung kam\
 zurück, die Drogenhändler, die versuchten, auf unser Schiff zu gelangen und Ihnen Drogen zu überreichen, diese musste man mit den Paddeln weg scheuen. Es gelang nicht immer, alle Drogen fernzuhalten, auch Alkohol kam ins Spiel. Die Jugendlichen haben schlaue Pläne geschmiedet und eines nachts entpuppten sich, das sie die Unschuldig aussehenden Tetrapacks mit Wein gefüllt hatten, Weinrot wie die Segel. Damit füllten sie sich ab und der Jüngste viel in ein Delirium, die Crew musste gemeinsam anpacken, um ihn aus diesem kritischen Zustand zu helfen.
 
@@ -55,18 +55,18 @@ Die Jugendliche müssen die Versuchung meiden wieder in die Alten Muster zu fall
 
 Zu jeder Zeit aufmerksam zu sein, ist eine harte Challenge. Es ist eine grosse Verantwortung, die schwer auf den Schultern lastet. Man will sie gerecht werden und die Jugendlichen auf der Reise begleiten und sicher wieder zurückbringen. In der Hoffnung, sie können es packen, wieder in die Gesellschaft einzusteigen. Damit sie ihr eigenes Leben führen können.
 
-\-Die Jugendlichen erwischten die Zahlmeisterin beim Drogenkonsum. Das war für sie gefundenes fressen, welches sie zu ihren Gunsten gebrauchten. Die Zahlmeisterin war schwach und abhängig, diese schwäche brauchten sie gegen sie. Sie hatten sie direkt unter Kontrolle und konnten uns so hinter dem Rücken gehen.\
-Das setzte das Konzept ausser Balance die Jugendlichen hatten sie unter Kontrolle und konnten hinter unseren rücken gehen. Dies gab ein riss in unsere Reise, ein Strich durch die Rechnung. Vertrauen ging verloren und die Zahlmeister musste fristlos gehen.
+\-Die Jugendlichen erwischten die Zahlmeisterin beim Drogenkonsum. Das war für sie gefundenes fressen, welches sie zu ihren Gunsten gebrauchten. Die Zahlmeisterin hatte bei ihrer Aufgabe verfehl, sie war schwach und abhängig, diese schwäche brauchten die Jugendliche gegen sie. Sie hatten die Zahlmeisterin direkt unter Kontrolle und konnten so den Leitern hinter dem Rücken gehen, dass setzte das Konzept ausser Balance. Dies gab ein Riss in unsere Reise, ein Strich durch die Rechnung. Vertrauen ging verloren und die Zahlmeister musste fristlos gehen.
 
-Jeder kann in Drogen reinschlittern und dies wird einem früher oder später zum Verhängnis, denn sie sind unkontrollierbar und ziehen dich in die Bahn. Dies zu vermeiden oder entkommen braucht kraft, aber es lohnt sich den so findet man wieder die wichtigen Werte in deinem Leben. Ansonsten rauscht es an dir vorbei.
+Jeder kann in Drogen reinschlittern und dies wird einem früher oder später zum Verhängnis, denn sie sind unkontrollierbar und ziehen dich in die Bahn. Dies zu vermeiden oder entkommen braucht kraft, aber es lohnt sich den so findet man wieder die wichtigen Werte in deinem Leben. Ansonsten rauscht es Wortwörtlich an dir vorbei.
 
 \-Der Schritt weg von den Drogen ist ein grosser und es ist einfach wieder hereinzuschlittern. Die Jugendliche sind instabil und hängen an einem Faden. Sie drücken sich mit grosser Frustration, Wut und ein Haufen Emotionen aus.\
-Auch das Wetter hatte seine Schwankungen, auch hiermit mussten wir uns auseinandersetzen, bei einem grossen Sturm, schlugen die Regentropfen in die Gesichter, es sah aus, als liefen ihnen Tränen hinunter Wangen hinunter. Mussten wir Umwege machen, auch um unter den Jugendlichen Fortschritte zu erreichen brauchte es Umwege manchmal Rückschritte.Die jugendliche schlossen sich zusammen und wahren ein Team.
+Auch das Wetter hatte seine Schwankungen, auch hiermit musste sich die Crew auseinandersetzen. Bei einem grossen Sturm, schlugen die Regentropfen in die Gesichter, es sah aus, als liefen ihnen Tränen die Wangen hinunter. Sie mussten Umwege machen, auch um unter den Jugendlichen Fortschritte zu erreichen brauchte es Umwege, manchmal Rückschritte. Die Jugendliche schlossen sich zusammen und wahren ein starkes Team.
 
-\-Auf der Reise sehen sie Wahle, die unter dem Schiff schwimmen und mit ihrer mächtigen Flosse die Oberfläche durchbrechen.\
--Bei ihren Wachen blickt sie Tag und nachts, über das Meer und erblickt dabei am Horizont wie die Sonne rauf und runtergeht. -Schön -tagesablauf
+\-Auf der Reise sehen sie Wahle, die unter dem Schiff schwimmen und mit ihrer mächtigen Flosse die Oberfläche durchbrechen. Auch Meeresschildkröten und Schmetterlinge können sie mit Bewunderung beobachten.  \
+- Um an Deck das ganze Geschehen zu kontrollieren halten die Leiter Schichtweise Wache.\
+Bei ihren Wachen blickt Therese Zöller Tag und nachts, über das Meer und erblickt dabei am Horizont, wie die Sonne rauf und runtergeht. -Dies ist wohl der schönste Teil, ihres strengen Tagesablaufes. Dieser Moment erfüllt sie mit neuer Energie, für den kommenden Tag.
 
-\-Diese Reise war eine Bereicherung es gab einem einen Einblick ausserhalb von 0815, welches wertvoll ist und sich lohnt, auch für die in der Norm. Gerade dort mag das Liegen, wovon man etwas lernen kann. Jeder verdient eine zweite Chance und es ist ein schönes Erlebnis den Jugendlichen durch diese Segeltour eine zu geben.
+\-Diese Reise war eine Bereicherung es gab einem einen Einblick ausserhalb von 0815, welches wertvoll ist und sich lohnt, auch für die in der Norm. Gerade dort mag das Liegen, wovon man etwas lernen kann. Jeder verdient eine zweite Chance und es ist ein schönes Erlebnis, den Jugendlichen durch diese Segeltour eine zu geben.
 
 was sowohl die in der Norm etwas bringen können.\
 dass jeder eine zweite Chance verdient. -einer
