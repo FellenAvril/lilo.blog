@@ -18,7 +18,7 @@ Segelschiff Tectona
 >
 > ***Datum:*** 02.03.24
 >
-> ***Interviewerin:*** Fellen Avril Dickson 
+> ***Interviewerin:*** Fellen Avril Dickson
 >
 > ***Befragte Person:*** 
 > Thérèse Zöller (Pseudonym) Auf Wunsch der Befragten Person wurde der Name geändert
