@@ -35,7 +35,7 @@ Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und
 -Eine Jugendliche beobachtet fliegende Fische, wie sie über das Deck springen, hinauf in den Himmel. Schaut man zum Himmel hinauf, sieht man die grossen Masten und die Segel in ihren prächtigen Farben von Weinrot zu Safran gelb, welche die Crew über die offenen Meere tragen. 
 
 \
-Von Spanien Vilanova i la Geltrú, übers Alboràn Meer, durch die Strase von Gibraltar, nach Almeria, weiter nach Ceuta eine spanische Enklave an der nordafrikanischen Küste, weiter nach Gibraltar an der Südküste Spaniens, zu den Inseln in Portugal Madeira und Parto Santo, danach zu der Inselgruppe in Afrika Capo Verde, dann weiter Richtung Azoren. Auf dem Rückweg legten sie auch beim Hafen von Horta an auf der Insel Faial, danach ging es nach Maroko
+Von Spanien **Vilanova i la Geltrú**, segelten sie übers **Alboràn Meer**, durch die **Strasse von Gibraltar**, nach **Almeria**, weiter nach **Ceuta** eine spanische Enklave an der nordafrikanischen Küste, weiter nach **Gibraltar** an der Südküste Spaniens, zu den Inseln in Portugal **Madeira** und **Parto Santo**, danach ankerten sie bei der Inselgruppe in Afrika **Capo Verde** und steuerten weiter Richtung **Azoren**. Auf dem Rückweg legten sie auch beim Hafen von **Horta** an auf der Insel **Faial**, sie ankerten auch in **Pico** und **Càdiz**, danach ging es weiter Richtung Marokko **Tanger**, danach über die Spanischen Inseln **Formentera** und **Ibiza** Retour.
 
 Retour
 
