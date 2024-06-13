@@ -22,7 +22,7 @@ Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Pl
 Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der Organisation Plus Schweizer Jugend zur See geführt wird. Dieser Segeltörn dient als anschliessende Therapie für Drogenabhängige Jugendliche nach dem Entzug.
 
 ***Augaben:***\
-Sie als Soziapädagogin ist verantwortlich für das Verhalten der Jugendlichen, die weiteren Begleiter sind der erfahrene Kapitän, der das Sagen übers Schiff hat, der Co-Skipper der auf dem Deck arbeitet, und die Zahlmeisterin, die die Verantwortung hat, das Journal mit den Einträgen der Reise zu führen.
+Sie als Soziapädagogin ist verantwortlich für das Verhalten der Jugendlichen. Die weiteren Begleiter sind der erfahrene Kapitän, der das Sagen übers Schiff hat, der Co-Skipper der auf dem Deck arbeitet und die Zahlmeisterin, die die Verantwortung hat, die Buchhaltung und das Journal mit den Ereignissen der Reise zu führen.
 
 ***An Deck:*** \
 Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hin-und Her schwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden. Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum, das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
