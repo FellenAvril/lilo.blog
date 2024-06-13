@@ -14,7 +14,7 @@ image = "img_0085.jpeg"
 > Schon immer war sie begeistert von Schiffen und liebte das Meer, selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
 > Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei.
 
-![](img_0085.jpeg)
+![Segelschiff Tectona ](img_0085.jpeg "Segelschiff Tectona")
 
 ***Die Reise auf der Tectona:***\
 Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.
