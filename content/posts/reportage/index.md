@@ -28,6 +28,8 @@ Sie als Soziapädagogin, ist verantwortlich für das Verhalten der Jugendlichen.
 ***An Deck:*** \
 Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hin-und Her schwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden. Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum, das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
 
+> ”Es gilt, immer die Augen offen zu halten.”     
+
 Eine Angelschnur schnallt durch die Luft. Da fällt ihr Fokus auf dem Jüngsten der Jugendlichen. Er wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor.\
 Nun schweift ihr Blick zurück an Bord, den Herausforderungen entgegen.\
 Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und fünf Männer, 17- bis 25-jährige Spanier und Schweizer. Sie haben viel erlebt und angerichtet, bis sie von den Jugendanwaltschaften auf diesen Törn geschickt wurden. Um wegzukommen von ihren alten Muster.
