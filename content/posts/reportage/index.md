@@ -48,7 +48,7 @@ Hier müssen sie lernen den Herausforderungen ins Auge zu schauen. Mit dem haben
 
 Sie nehmen es in Versuchung den Begleitern, um den Finger zu wickeln uns hinters Licht zu führen. Als wir Unterwegs an den Hafen anlegten, kam das Land in Sicht und die Verlockung kam zurück, die Drogenhändler, die versuchten, auf unser Schiff zu gelangen und Ihnen Drogen zu überreichen, diese musste man mit den Paddeln weg scheuen. Es gelang nicht immer, alle Drogen fernzuhalten, auch Alkohol kam ins Spiel. Die Jugendlichen haben schlaue Pläne geschmiedet und eines nachts entpuppten sich, das sie die Unschuldig aussehenden Tetrapacks mit Wein gefüllt hatten, Weinrot wie die Segel. Damit füllten sie sich ab und der Jüngste viel in ein Delirium, die Crew musste gemeinsam anpacken, um ihn aus diesem kritischen Zustand zu helfen.
 
-***Veränderung Durchbrechen Erwischt Verhängniss Versuchung:***\
+***Verhängnis:***\
 Die Jugendliche müssen die Versuchung meiden wieder in die Alten Muster zu fallen, man will diese durchbrechen genau wie das Schiff die Wellen. Dies muss ihnen beigebracht werden und sie müssen sich davon fernhalten. Es war die Aufgabe der Leiter, die Aufsicht zu halten, auf die Jugendlichen aufzupassen und darauf zu schauen, dass sie clean bleiben auf dieser Reise. Es mag zwar unsanft sein, aber dies ist nötig, um am Ziel anzukommen und den Anker senken zu können.
 
 > “Die Jugendliche müssen die Versuchung meiden wieder in die Alten Muster zu fallen, man will diese durchbrechen genau wie das Schiff die Wellen.”
