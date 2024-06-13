@@ -77,4 +77,4 @@ Die Sonne wärmte ihre Lederjacke, nun tritt sie hinein in den lebendigen Zürch
 
 > ”Wen es auch nur ein Jugendlicher ist, der es schafft die Drogen hinter sich zu lassen und in ein neuen Lebensabschnitt zu segeln, lohnt sich die Segeltour”
 
-Es fühlte sich an, als sickerte die Wärme der Sonnenstrahlen durch ihre Lederacke, auch wenn sie hier im Bahnhof nicht zu sehen war. Und obwohl sie nicht mehr auf dem Schiff war, spürt sie das Schwanken der Wellen und sieht die Sonne wie sie untergeht. Der wunderschöne Sonnenuntergang, in seinen prächtigen Farben, die ihr durch diese Reise durchgetragen haben.
+Es fühlte sich an, als sickerte die Wärme der Sonnenstrahlen durch ihre Lederacke, auch wenn sie hier im Bahnhof nicht zu sehen war. Und obwohl sie nicht mehr auf dem Schiff war, spürt sie das Schwanken der Wellen und sieht die Sonne wie sie untergeht. Der wunderschöne Sonnenuntergang, in seinen prächtigen Farben, die ihr durch diese Reise durch getragen haben.
