@@ -12,8 +12,7 @@ image = "img_0085.jpeg"
 
 
 
-> Dies ist die Reise von Thérèse Zöller (Pseudonym) Sie ist 73 jährig und lebt am Thunersee. \
-> Schon immer war sie begeistert von Schiffen und liebte das Meer, selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
+> Dies ist die Reise von Thérèse Zöller (Pseudonym) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer, selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
 > Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei.
 
 ![Segelschiff Tectona ](img_0085.jpeg "Segelschiff Tectona")
