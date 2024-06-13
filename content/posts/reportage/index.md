@@ -42,10 +42,9 @@ Von Spanien: **Vilanova i la Geltrú**, segelten sie übers **Alboràn Meer**, d
 ![Karte](img_0028.jpeg "Karte")
 
 ***Herrausforderungen:***\
-Auf dem Weg, wurde die Tour begleitet von hartem Unwetter und schlechten Windbedingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil des Schiffes und erst nach dem man es repariert hatte, konnte die Crew die Reise fortsetzen. Sie fuhren übers offene Meer. Jeder Tag ist ein neues Abendteuer, gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt.
+Auf dem Weg, wurde die Tour begleitet von hartem Unwetter und schlechten Windbedingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil des Schiffes und erst nach dem man es repariert hatte, konnte die Crew die Reise fortsetzen. Sie fuhren übers offene Meer. Jeder Tag ist ein neues Abendteuer, gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt. Sie waschen, schruppen, kochen und bunkern Nahrung für die nächsten Tage ihrer Reise. 
 
-Sie waschen, schruppen, kochen und bunkern Nahrung für die nächsten Tage ihrer Reise.\
-Hier müssen sie lernen den Alltag zu meistern und den Herausforderungen ins Auge zu schauen. Mit dem haben sie zu kämpfen. Auf dem offenem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen. Aber bei jeder Chance, die sie kriegen, versuchen sie, einen Ausweg zu finden. An ihren Gewohnheiten der Vergangenheit sind sie noch immer stark gebunden und das Verlangen nach dem Konsum von Drogen bleibt pressent. 
+Hier müssen sie lernen den Herausforderungen ins Auge zu schauen. Mit dem haben sie zu kämpfen. Auf dem offenem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen. Aber bei jeder Chance, die sie kriegen, versuchen sie, einen Ausweg zu finden. An ihren Gewohnheiten der Vergangenheit sind sie noch immer stark gebunden und das Verlangen nach dem Konsum von Drogen bleibt pressent. 
 
 Sie nehmen es in Versuchung den Begleitern, um den Finger zu wickeln uns hinters Licht rücken zu gehen.\
 Als wir Unterwegs an den Hafen anlegten, kam das Land in Sicht und die Verlockung kam\
