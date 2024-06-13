@@ -17,7 +17,7 @@ image = "img_0085.jpeg"
 ![](img_0085.jpeg)
 
 ***Die Reise auf der Tectona:***\
--(Die Aufgehede Sonne am Horizont.) Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.\
+-Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.\
 -Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der Organisation Plus Schweizer Jugend zur See geführt wird.  
 
 ***Augaben der Leiter:***\
@@ -37,13 +37,11 @@ Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und
 
 ![](img_0028.jpeg)
 
-Route:\ 1. Villanueva, 2. Balearen, 3. Tanger, 4. Ceuta, 5. Azoren, 6. Madeira, 7. Kapverden 
-
 ***Herrausforderungen:***\
 -Auf dem Weg, wurde die Tour begleitet von hartem Unwetter und schlechten Windbedingungen. Man weiss nie, was einem auf offenem Meer erwartet, es zerschlug ein Teil des Schiffes und erst nach dem man es repariert hatte, konnte die Crew die Reise fortsetzen. Sie fuhren übers offene Meer. Jeder Tag ist ein neues Abendteuer, gefüllt mit der Routine des Alltages, welche es als Team zu meistern gilt.\
 -Sie waschen, schruppen, kochen und bunkern Nahrung für die nächsten Tage ihrer Reise.\
-Hier müssen sie lernen (den Alltag zu meistern und den) Herausforderungen ins Auge zu schauen. Mit dem haben sie zu kämpfen. Auf dem offenem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen.\
-Aber bei jeder Chance, die sie kriegen, versuchen sie, einen Ausweg zu finden. An ihren Gewohnheiten der Vergangenheit sind sie noch immer stark gebunden und das Verlangen nach dem Konsum von Drogen bleibt pressent. -Sie nehmen es in Versuchung den Begleitern, um den Finger zu wickeln uns hinters Licht rücken zu gehen.\
+Hier müssen sie lernen den Alltag zu meistern und den Herausforderungen ins Auge zu schauen. Mit dem haben sie zu kämpfen. Auf dem offenem Meer gibt es keinen Ausweg, kein Land in Sicht, um wegzurennen und der Realität auszuweichen. Aber bei jeder Chance, die sie kriegen, versuchen sie, einen Ausweg zu finden. An ihren Gewohnheiten der Vergangenheit sind sie noch immer stark gebunden und das Verlangen nach dem Konsum von Drogen bleibt pressent. \
+-Sie nehmen es in Versuchung den Begleitern, um den Finger zu wickeln uns hinters Licht rücken zu gehen.\
 Als wir Unterwegs an den Hafen anlegten, kam das Land in Sicht und die Verlockung kam\
 zurück, die Drogenhändler, die versuchten, auf unser Schiff zu gelangen und Ihnen Drogen zu überreichen, diese musste man mit den Paddeln weg scheuen. Es gelang nicht immer, alle Drogen fernzuhalten, auch Alkohol kam ins Spiel. Die Jugendlichen haben schlaue Pläne geschmiedet und eines nachts entpuppten sich, das sie die Unschuldig aussehenden Tetrapacks mit Wein gefüllt hatten, Weinrot wie die Segel. Damit füllten sie sich ab und der Jüngste viel in ein Delirium, die Crew musste gemeinsam anpacken, um ihn aus diesem kritischen Zustand zu helfen.
 
@@ -61,9 +59,7 @@ Auch das Wetter hatte seine Schwankungen, auch hiermit musste sich die Crew ause
 Bei ihren Wachen blickt Therese Zöller Tag und nachts, über das Meer und erblickt dabei am Horizont, wie die Sonne rauf und runtergeht. Dies ist wohl der schönste Teil, ihres strengen Tagesablaufes. Dieser Moment erfüllt sie mit neuer Energie, für den kommenden Tag.
 
 ***Outcome:***\
--Diese Reise war eine Bereicherung es gab einem einen Einblick ausserhalb von 0815, welches wertvoll ist und sich lohnt, auch für die in der Norm. Gerade dort mag das Liegen, wovon man etwas lernen kann. Jeder verdient eine zweite Chance und es ist ein schönes Erlebnis, den Jugendlichen durch diese Segeltour eine zu geben.\
-(was sowohl die in der Norm etwas bringen können.\
-dass jeder eine zweite Chance verdient. -einer))
+-Diese Reise war eine Bereicherung es gab einem einen Einblick ausserhalb von 0815, welches wertvoll ist und sich lohnt, auch für die in der Norm. Gerade dort mag das Liegen, wovon man etwas lernen kann. Jeder verdient eine zweite Chance und es ist ein schönes Erlebnis, den Jugendlichen durch diese Segeltour eine zu geben.
 
 > ‘’Ausserhalb der Norm liegt etwas von enormer Wichtigkeit, auch für die in der Norm.’’
 
