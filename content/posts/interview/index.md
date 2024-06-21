@@ -77,16 +77,16 @@ Es gab immer wieder andere Seilschaften sowohl unter den Jugendlichen wie unter 
 
 ***Und dort ging vertrauen verloren, bei den Jugendlichen weil es unter den Erwachsenen missbraucht wurde?*** 
 Also der Kapitän (Skipper) und ich waren jetzt wirklich ein Team, das zusammenhielt und die Jugendlichen hatten jetzt kein Pfand mehr in der Hand.
-War das wahrscheinlich die ganze Zeit schon ein Problem das ihr gehabt habt und deswegen konnten sie so viel schlechtes machen? Ja
-Der Skipper und ich wir haben Sie bereits in Zürich erwischt beim Drogenkonsum und meine erste Reaktion war ich renne zu meiner Freundin der Bereichsleiterin. Ich rätsche oder täffele wie man auf Zürichdeutsch sagt, ich verrate die Zahlmeisterin, dass sie eben Drogen konsumiert. Ein zweiter Gedanke war dann, halt Moment wir sind 3 Erwachsene Menschen. Der Skipper, die Zahlmeisterin und ich wir saßen zusammen und offenbarten ihr, dass wir sie erwischt hatten beim Drogenkonsum. Dann sagte sie „Das ist überhaupt kein Problem, das mach ich so manchmal hin und wieder, das kann ich lassen. Ich bin nicht von dem abhängig“. Der Skipper verlangte eine Zusage von ihr und wir beschlossen, ok schwamm darüber. Wir wollen den Turn nicht gefährden, denn das hätte zum Abbruch des Projekts führen können. Aber auf Mindelo musste sie dann fristlos gehen.
+**War das wahrscheinlich die ganze Zeit schon ein Problem das ihr gehabt habt und deswegen konnten sie so viel schlechtes machen?**\
+Ja, der Skipper und ich wir haben Sie bereits in Zürich erwischt beim Drogenkonsum und meine erste Reaktion war ich renne zu meiner Freundin der Bereichsleiterin. Ich rätsche oder täffele wie man auf Zürichdeutsch sagt, ich verrate die Zahlmeisterin, dass sie eben Drogen konsumiert. Ein zweiter Gedanke war dann, halt Moment wir sind 3 Erwachsene Menschen. Der Skipper, die Zahlmeisterin und ich wir saßen zusammen und offenbarten ihr, dass wir sie erwischt hatten beim Drogenkonsum. Dann sagte sie „Das ist überhaupt kein Problem, das mach ich so manchmal hin und wieder, das kann ich lassen. Ich bin nicht von dem abhängig“. Der Skipper verlangte eine Zusage von ihr und wir beschlossen, ok schwamm darüber. Wir wollen den Turn nicht gefährden, denn das hätte zum Abbruch des Projekts führen können. Aber auf Mindelo musste sie dann fristlos gehen.
 Das war ein sehr schlechtes Beispiel für die Jugendliche, weil sie auf diesem Weg sind, um den Drogenkonsum loszuwerden und sie hat dies wieder reingebracht.
 Also das war ein sehr schlechtes Beispiel für die Jugendliche. 
-Haben sie auch daraus gelernt, das sie als konzequenz gehen musste? 
+**Haben sie auch daraus gelernt, das sie als konzequenz gehen musste?** 
 Ja, du wirst erwischt und dann fertig. Dass war eine Möglichkeit daraus zu lernen, die Folge war das wir einen Monat auf Mindelo festsassen. 
 
 \***\-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
 Sie hatten die Gelegenheit zu lernen wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässigkeit zu übernehmen, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und sünele.
-Gab es Fortschritte die du an Board miterlebt hast?
+**Gab es Fortschritte die du an Board miterlebt hast?**
 Ein möglicher Fortschritt war für die Spanierin, als wir in den südlichen Gewässern fuhren, hatten wir fliegende Fische. Die fliegenden Fische können sehr hoch und sehr weit springen und es gab solche die sprangen von der einen Seite, vom vorderen Teil des Schiffs und versuchten über das Schiff hinüber auf die andere Seite ins Meer zu springen oder zu fliegen und dann landeten einige Halt an Deck und verelendeten jämmerlich. Und die Spanierin ist Katholikin und das war des Teufels. Die war in Panik der „Teufel kommt uns holen“ und die Gruppe versuchten ihr klarzumachen, glaube hin oder her, diese Fische die springen die Fliegen buchstäblich und das hat mit dem Teufel nix zu tun. Und mit einigen zureden, konnte sie sich dann beruhigen.
 
 Ein weiteres Beispiel das Jüngelchen liebte das Fischen. Er warf hinten am Heck seine Rute raus, also einfach eine Leine mit Haken und fischte Tag für Tag für Tag Feste raus und am Anfang war das wunderbar, wir hatten Fisch bis sie uns zu den Ohren rauskammen und ab einem bestimmten Punkt wollten wir Fisch nicht mehr sehen. Wir befahlen ihm jetzt hörst du auf, man fischt nicht einfach die Fische raus und lasst sie dann verenden. Er gehorchte nicht, also da wäre eine Möglichkeit gewesen dass er zu Sinnen hätte kommen können und realisieren, solange wir Fisch essen ja fischen, aber wenn wir genug haben nicht weiterfahren. 
@@ -120,7 +120,7 @@ Gebetet und wir hatten auch wenn wir dann an Land waren, einige Freitage wo eins
 Du hattest also einen,Tag für dich alleine wo du dann im Hotel übernachten konntest, 
 ***Was hast du sonst noch erlebt an diesen Freitagen?***
 Als wir auf den Kanaren im Hafen anlegten, mietete ich in der Hauptstadt für meine Freitage ein Auto, um die Insel zu erkunden. Ich fuhr von Dorf zu Dorf in den Abend hinein. Das eine Dorf war Pumpe voll mit englischen und deutschen Touristen das war einfach eine Einbahnstrasse mit Einkaufsläden, das hat mich abgelöscht. Nachdem ich in einem Süssigkeitladen landete, wo ich mir ein Sack füllte voll Täffeli, Gummibärchen und all dieses süsse Zeugs, diesem Schissdreck. Danach hab ich mich entschieden da bleibe ich nicht, also fuhr ich weiter um die Insel herum es war Nacht, ich war am Süssigkeiten essen und fand kein Hotel. Letztendlich bin ich wieder in der Hauptstadt gelandet, von wo ich fliehen wollte. Da bin ich dann halt ins Hotel gegangen und habe im Hotel übernachtet.
--Wie konntest du denn Jugendlichen helfen?
+**\-Wie konntest du denn Jugendlichen helfen?**
 Indem dass ich authentisch, gerecht, nett und mit Zuwendung aber nicht Zuwendung die du dann um den Finger wickeln kannst, gegenüber trat. 
 
 \***\-Was hat die Jugendliche belastet, was waren die Herausforderungen für sie?***
@@ -142,65 +142,74 @@ Wahrscheinlich der Verantwortung gerecht zu werden.
 **\-Wie hast du dich wehrend diese Reise gefühlt, was ist dir durch den Kopf gegangen?**
 Ich war sehr angestrengt, also wirklich nicht entspannt. die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesundheit ausgewirkt. 
 
-**\-Welche Freundschaften haben sich daraus ergeben auf diese Reise?** Keine. 
+**\-Welche Freundschaften haben sich daraus ergeben auf diese Reise?** \
+Keine. 
 **Also auch nicht bei den unteren den Leitern?**
 Die Zahlmeisterin hat dann viel später versucht wieder Kontakt mit mir aufzunehmen. Aber aufgrund von dem, was abgegangen war, hatte ich kein Interesse.
 
-\-Hat dich das Erlebnis bereichert? Ja. 
+**\-Hat dich das Erlebnis bereichert?** \
+Ja. 
 
-\-Wie fühltest du dich als du zurückkamst von dieser Reise? Ich musste mich erholen. Also ich war ausgepumpt.
-Als du zurückkamst, konntest du gerade weiter machen? Mein Leben ist ein Puzzle, da kommt alle 2-4 Jahre etwas Neues rein und eines reit sich ans andere. Als ich von diesem Schiff zurückkam, erhielt ich meine nächste Stelle in Oberried am Zürichsee und dort ging es in einem völlig anderen Film weiter.
+**\-Wie fühltest du dich als du zurückkamst von dieser Reise?**\
+Ich musste mich erholen. Also ich war ausgepumpt.
+**Als du zurückkamst, konntest du gerade weiter machen?** \
+Mein Leben ist ein Puzzle, da kommt alle 2-4 Jahre etwas Neues rein und eines reit sich ans andere. Als ich von diesem Schiff zurückkam, erhielt ich meine nächste Stelle in Oberried am Zürichsee und dort ging es in einem völlig anderen Film weiter.
 
-\-Würdest du es nochmal machen? Ja. Also jetzt sowieso nicht mehr ich wäre zu alt, aber damals ja. Ich habe unendlich viele tiefe Erfahrungen gemacht auf breiter Basis. 
+**\-Würdest du es nochmal machen?** \
+Ja. Also jetzt sowieso nicht mehr ich wäre zu alt, aber damals ja. Ich habe unendlich viele tiefe Erfahrungen gemacht auf breiter Basis. 
 Das ist stark dass du dass auch wenn es schwierig war nochmals durchgezogen hättest. 
-Gäbe es Sachen die du jetzt anders oder besser machen könntest? Besser nicht. 
+**Gäbe es Sachen die du jetzt anders oder besser machen könntest?** \
+Besser nicht. 
 
-Du hast den ganzen Turn duchgezogen, das ist eine grosse Leistung?
+**Du hast den ganzen Turn duchgezogen, das ist eine grosse Leistung?**
 Ja ich kann das vielleicht so sagen, also ich blöffe jetzt, Wir brachten alle 7 Jugendliche zurück. Es gab vorher mal ein Turn beidem das Schiff sank. Nur die Pädagogische Leitung und ein Jugendlicher überlebten, diese 2 Personen überlebten, alle anderen sanken mit dem Schiff ab. 
 Wir waren so gesegnet, ich kann es nicht anders sagen, wir waren so gesegnet, wir brachten alle 7 zurück.
 Dadurch wurde ich dann angefragt vom Verein, ob ich bereit wäre in den Vorstand einzutreten, um meine Erfahrungen einzubringen. Im Vorstand waren auch ein Jurist, eine Lehrkraft und ein Segler.\
-Hast du das dann angenommen? Ja.
-Und wie war das? Nach drei Jahren in denen weitere Schiffturns organisiert wurden, mussten wir schweren Herzen uns dazu entscheiden den Verein aufzulösen und zu schliessen. Die Voraussetzungen wurden schwieriger, zum Beispiel mit der Jugendanwaltschaft die nicht mehr bezahlen wollte. Es kam so die Idee das dieses Therapieangebot ist viel zu teuer ist, für was es bringt. Weil wir gingen von drei Möglichkeiten aus, eine ist es kommt gut die Jugendlichen die sind dann clean und nehmen ihr Leben in ihre Hände und es geht. Ein Drittel, komm zu sich, hascht vielleicht noch, kann sich nicht ganz stabilisieren und ein Drittel geht schlimm aus.
-Also gibt es jetzt dieser Verein und dieses Angebot nicht mehr? 
+**Hast du das dann angenommen?** \
+Ja. Und wie war das? Nach drei Jahren in denen weitere Schiffturns organisiert wurden, mussten wir schweren Herzen uns dazu entscheiden den Verein aufzulösen und zu schliessen. Die Voraussetzungen wurden schwieriger, zum Beispiel mit der Jugendanwaltschaft die nicht mehr bezahlen wollte. Es kam so die Idee das dieses Therapieangebot ist viel zu teuer ist, für was es bringt. Weil wir gingen von drei Möglichkeiten aus, eine ist es kommt gut die Jugendlichen die sind dann clean und nehmen ihr Leben in ihre Hände und es geht. Ein Drittel, komm zu sich, hascht vielleicht noch, kann sich nicht ganz stabilisieren und ein Drittel geht schlimm aus.
+**Also gibt es jetzt dieser Verein und dieses Angebot nicht mehr?** 
 Ja leider gibt es Plus Schweizer zur See nicht mehr. 
 Es gibt aber eine andere Institution die heisst der Stern, Wimmis. Die haben ein ähnliches Angebot, aber es läuft nicht genauso wie bei uns. Bei denen fährt das Schiff immer seine Route und die Jugendlichen kommen jeweils für eine bestimmte Zeit aufs Schiff, sie steigen an einem Ort ein und dann wieder raus.
 
-\-Wie hat diese Fahrt den Passagieren geholfen und was war das Ziel an dieser Fahrt?
+**\-Wie hat diese Fahrt den Passagieren geholfen und was war das Ziel an dieser Fahrt?**
 Das Ziel war die Jugendliche in das hier und jetzt zu bringen, in die Realität dieser harten Welt. Du gehst nicht auf die Gasse, Kiffst und bringst dich mit Drogen um. Das ist eine Art des Lebens aber das ist nicht die Gesellschaft taugliche. Das Ziel war sie nach Möglichkeit in die Gesellschaft hereinzubringen.
 
-Würdest du es Jugendlichen weiterempfehlen? 
+**Würdest du es Jugendlichen weiterempfehlen?** 
 Immer. 
 
-Glaubst du dass diese Reise die Jugendliche bereichert hat und das sie daraus gelernt haben?
+**Glaubst du dass diese Reise die Jugendliche bereichert hat und das sie daraus gelernt haben?**
 Also da geh ich davon aus. Für mich, wenn es ein Jugendlicher ist von unseren sieben. Ein Jugendlicher, der gerettet werden kann. Also bei dem es gut kommt, der es schafft dann in die Gesellschaft reinzukommen und wirklich das Leben zu leben.
 Das ist Erfolg, das lohnt sich und wenn es mehrere sind umso besser. 
 
-Wie gab diese Reise den Jugendlichen eine Möglichkeit auf einen Neuanfang?
+**Wie gab diese Reise den Jugendlichen eine Möglichkeit auf einen Neuanfang?**
 Also das hing von dem einzelnen Jugendlichen ab, was er in dieser Zeit lernen wollte, und da gab es unsäglich viele Möglichkeiten. Ich mag mich an eine Aussage des Ältesten erinnern sie lautete dahingehend „Wow das ist so wertvoll, ich habe so viel gelernt, ich bin sehr dankbar und glücklich dass ich dabei bin“. Als ich dann anschliessend diese Stelle am Zürichsee hatte und durch den Bahnhof Zürich ging, da sah ich diesen Jugendlichen, der diese Aussage gemacht hatte, durch die Bahnhofhalle schlendern, mit seiner Freundin im Arm. Der hats gepackt, das war ein wunderschönes Zeichen. Rewording you know. Da war mir klar, dass wen es eines der Jugendlicher ist, ein Jugendlicher der es schafft, das sich der Aufwand der Schiffreise gelohnt hat.
 
-\-Was konntest du wärend deiner Reise beobachten?
+**\-Was konntest du wärend deiner Reise beobachten?**
 Ganz viel konnte ich beobachten, sehr viel Schönes auch weniger Schönes. Es war spannend, extrem spannend. Viel Neues eröffnete sich mir, dass ich mir nie hätte träumen lassen.
 
-Was ist dir wichtig erschienen? Die Erfahrung gemacht zu haben. Ich bin um diese Erfahrung reicher geworden.
+**Was ist dir wichtig erschienen?**\
+ Die Erfahrung gemacht zu haben. Ich bin um diese Erfahrung reicher geworden.
 
-Was hat dich bewegt?
+**Was hat dich bewegt?**
 Es gab extrem viele wunderbare Momente. Aber vielleicht eben dieses Beispiel von dem 25-Jährigen, der mit seiner Freundin durch die Bahnhofhalle schlendert, das war sehr rewording.
 
-Was hast du gelernt, was hast du in dein persönliches Leben mitgenommen?
+**Was hast du gelernt, was hast du in dein persönliches Leben mitgenommen?**
 Gelernt habe ich dranbleiben, dranbleiben, dranbleiben. Pip egal was abgeht, zielgerichtet dranbleiben. 
 
-Wie hat diese Reise dich bewegt in deinem Alltag?
+**Wie hat diese Reise dich bewegt in deinem Alltag?**
 Also was mich am meisten bewegt habt ist der Reichtum an Erfahrungen, die ich machen durfte.
 
-Gibt es eine Botschaft die du auf deinem Weg mitgenommen hast, die du mitteilen möchtest?
+**Gibt es eine Botschaft die du auf deinem Weg mitgenommen hast, die du mitteilen möchtest?**
 Diese Reise war ein Erlebnis für mich, welches zeigt dass das Leben reich, 
 viel fältig, wunderbar und herausfordernd ist. Und dass das, was ausserhalb von Nullachtfünfzehn ist, mindestens ebenso wertvoll ist. 
 Und wir tun gut daran, das was ausserhalb von Nullachtfünfzehn ist, zu versuchen zu verstehen. Vielleicht verstehen wir es nicht, das macht nichts, aber immerhin es hat seinen Sinn.
-Also das was aus dem Normen ist kennenzulernen? Ja, weil vielleicht steckt in dem was drin, was wir in der Norm, sehr gut gebrauchen können.
+**Also das was aus dem Normen ist kennenzulernen?**\
+Ja, weil vielleicht steckt in dem was drin, was wir in der Norm, sehr gut gebrauchen können.
 
-\-Du lebst hier gerade beim See, Schätzt du das Wasser?
+**\-Du lebst hier gerade beim See, Schätzt du das Wasser?**
 Ich habe immer gesagt, ich bleibe im Bümpliz, es sei denn ich kann ans Wasser ziehen. Und da bin ich jetzt.
 
-Wenn du nach draussen schaust und die Schiffe siehst, denkst du an deine Erlebnisse auf dem Meer?
+**Wenn du nach draussen schaust und die Schiffe siehst, denkst du an deine Erlebnisse auf dem Meer?**
 Wen ich die Schiffe auf dem See sehe, erinnere ich mich wie die Cru das Schiff übers Wasser steuert. Die Schiffe interessieren mich nach wie vor und ich geniesse dass das Wasser mich weiterhin durch den Alltag begleitet, den ich liebte schon immer das Meer.
-Ende
+
+**Ende**
