@@ -23,16 +23,11 @@ Segelschiff Tectona
 Ich gehe davon aus dass diese Titel Alter Seebär eben daher rührt, weil ich sehr begeistert war mit all den Dingen die Geschahen wärend dieser Reise. 
 Es ging darum das die Arbeit auf dem Schiff Präzision, Gegenwart und Aktivität erforderte. Man muss dabei sein. Also es geht nicht dass man lauert wie wir sagen, wenn die Fahrt erfolgreich sein soll, das macht ein alter Seebär aus. 
 
-***\-Woher kam deine Leidenschaft für das Meer und das Segeln?*** 
+***\-Woher kommt deine Leidenschaft für das Meer und das Segeln?*** 
 Das Meer war immer ein Anziehungspunkte für mich. Ich habe mit meinen 3 Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See Ausweis also See gleich Meer Ausweis. Und wie ich den hatte, meldete ich mich bei der Plus Schweizer Jung zur See, mit der Bitte sie sollen mich auf so einen Törn als Mitarbeiterin schicken. 
 
 ***\-Was war das für eine Schifffahrt auf der du dabei warst?*** 
-Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation Plus Schweizer Jugend zur See, geführt wurde. Auf diesem Schiff fanden Turns statt, die mit Jugendlichen, nach dem Drogenentzug, einen Turn fuhren als Therapie. Auf dem Schiff waren mehrere Betreuer und Jugendliche. 
-
-***Hat die Reise einen speziellen Namen gehabt?*** Sommertörn 1994 95.
-
-***Wie lange wart ihr dann in insgesamt zusammen unterwegs?*** 
-7 Monate, September 1994 bis März 1995.$
+Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation Plus Schweizer Jugend zur See, geführt wurde. Auf diesem Schiff fanden Turns statt, die mit Jugendlichen, nach dem Drogenentzug, einen Turn fuhren als Therapie. Auf dem Schiff waren mehrere Betreuer und Jugendliche. Sieben Monate, September 1994 bis März 1995, waren wir zusammen auf der Summertörn unterwegs.
 
 ***\-Welche Route seid ihr mit dem Schiff gefahren und was habt ihr auf dem Weg entdeckt?***
 Von Mulin fuhren wir mit dem Zug über die Alpen. Dort sattelten wir die Velos und fuhren nach Villanueva bis zum Schiff, um sportlich aktiv zu sein, als Therapie für die Jugendlichen. Das Schiff war in Villanueva Spanien, das ist 30 Kilometer südlich von Barcelona. Da ging es das Mittelmeer runter und ankerten in Seeuta, das ist eine spanische Enklave auf dem afrikanischen Kontinent. Von Seeuta ging es dann weiter durch die Straße von Gibraltar zu Saopaulo der Inselgruppe von Madeira. Da hatten wir pech mit dem Wetter, es zerschlug ein Teil des Schiffs, das bevor wir weiterfahren konnten repariert werden musste. Dann nach Madeira und von Madeira runter zu den Kapverden. Und von den Kapverden rauf zu den Azoren. Von da aus steuerten wir auf Tanger zu. Weil wir dort ein Dokument stempeln mussten, dies war eine versicherungstechnische Frage, da wir ausserhalb der Europäischen Grenze am Segeln waren. Wir erreichten Tanger nicht, wir kehrten halbwegs zurück und gingen dann ins Mittelmeer. Hier konnten wir erneut wegen der Wetter und Windbedingungen nicht direkt nach Villanueva zurück. Wir mussten den Umweg fahren über die Balearen und dann nach den Balearen kamen wir wieder in Villanueva an. Von dort ging es dann per Zug nach Zürich, nach Hause.
@@ -51,14 +46,13 @@ Das hat dich dann zu dieser Segelfahrt geführt.
 Der Skipper ist der Kapitän, er hat die Verantwortung auf dem Schiff und die Fahrt, also alles Nautische oblag ihm. Der Coskipper stiess in Vilanueva dazu, er arbeitete auf dem Schiff und unterstütze den Skipper. Die Zahlmeisterin hatte dafür zu schauen, dass unser Geld korrekt ausgegeben wird. Das die Buchhaltung, das Journal der Ausgaben, korrekt geführt wird. Ihre Herausforderung war es das es damals noch die verschiedenen Währungen in den verschiedenen Ländern gab, also Frankreich, Spanien, Portugal.
 Die Pädagogische Leitung die verantwortlich ist für alles was mit den Jugendlichen passierte und sich um die Jugendliche kümmerte, das oblag mir.
 
-***\-In dieser Woche in den Bergen, was für Aufgaben habt ihr gemacht damit ihr euch besser kennenlernt?*** 
-Bevor wir zu See fuhren, waren wir ein Monat in einer Hütte hoch oben in den Bergen in Graubünden in der Mulin, zur Teamfindung. 
-Wärend der Zeit in der Mulin war es die Aufgabe der Erwachsenen dafür zu sorgen dass eben diese Team Findung stattfinden konnte, dass man sich kennenlernte. 
+***\-Was für Aufgaben habt ihr gemacht damit ihr euch besser kennenlernt?*** 
+Es ist die Aufgabe der Erwachsenen, dafür zu sorgen dass diese Team Findung stattfinden konnte, so dass man sich kennenlernte. 
 Wir haben den Alltag der ganz einfache Alltag erlebt. Es ist von grosser wichtigkeit dass man sich gegenseitig kennenlernt Schwächen und Stärken. Weil wenn du dann auf dem Schiff bist, ist es gut und hilfreich, wenn du eine Ahnung hast wie der andere tickt.
 Und das waren ja alles Jugendliche nach dem Drogenentzug und wenn du einen Drogenentzug machst, dann bist du noch weit entfernt von clean, wir hatten dort 7 Flöhe. Die alles daran setzten uns hinters Licht zu führen, um wieder an Drogen zu kommen. Das war unsere Aufgabe, zu schauen, dass die Drogen draussen bleiben und dass ist uns nicht ganz gelungen, darum spreche ich von Flöhen. 
 
 ***\-Wie war das Team, wie hast du es erlebt im Team?***
-Die 4 Erwachsenen mit 7 Jugendlichen 2 Frauen 5 Männer. Die Team Zusammensetzung war phänomenal. Es waren 2 Frauen, 2 Männer, 2 junge, 2 alte, 2 deutsche, 2 schweizer, ganz perfekt durchmischt.
+Die Team Zusammensetzung war phänomenal, ganz perfekt durchmischt. Es sind 4 Erwachsenen mit 7 Jugendlichen 2 Frauen 5 Männer.
 
 ***\-Wie wurden die Passagieren ausgewählt, also die die drogenabhängig waren?***
 Eine sehr spannende Frage, Plus Schweizer Jugend zur See, war eines der Segelangebote in der Schweiz das mit Jugendlichen nach dem Drogenentzug eben die Therapie fuhr. Das war eine Form von Therapie, eine harte Form der Therapie. Sozialdienste zum Beispiel oder andere Institutionen die von Jugendlichen wussten dass nach dem Drogenentzug eine Therapie angeschlossen werden sollte, weil wenn du aus dem Drogenentzug kommst, dann hast du das reißen. Also da muss man eine Therapie machen, wo man eingebunden ist. Eine anschließende Therapie ist wichtig. Wir hatten Zulieferer vom Jugendanwaltschaften  die während Jahren mit diesen Jugendlichen zu tun hatten und immer wieder Rückfälle um Rückfall. Soeben auch die Sozialdienste oder die Institutionen die sich mit solchen Jugendlichen Beschäftigten, die dann beschlossen eine solche Therapie ist angezeigt. Und klar brauchte es die Einwilligung der Jugendlichen dieses Angebot überhaupt anzunehmen. Man musste denen erzählen um was es geht, das das nicht einfach Schoko schlecken sein wird, dass sie herausgefordert werden. Bei den Jugendanwaltschaften war manchmal schon ein wenig Druck dahinter, „entweder du gehst aufs Schiff oder du gehst in den Knast“.
@@ -116,7 +110,8 @@ Der Skipper übernahm jeweils am Tag die Wache von 8 bis 12 und in der Nacht von
 Der Skipper war verantwortlich für das Schiff, also was der sagte das wurde umgesetzt, weil der war ein ganz hervorragender Kapitän, der alter deutsche Mann hatte eine Unmenge an Erfahrung. Auf dem Schiff gab es jegliche Sachen, zu tun je nach Wind je nach was gerade anfiel, musste der sagen was zu tun ist.
 Es galt auf dem Schiff zu haushalten, waschen, kochen und aufräumen. Wenn wir an Land legten, gingen wir einkaufen, das nennt man Bunkern. Als wir Bunkern gingen, mussten wir überlegen, wie lange die Fahrt bis zum nächsten Hafen dauert und Verzögerungen einberechnen, je nachdem wie der Wind mitmacht oder nicht. Wir mussten schauen, dass wir für diese Zeit genug Nahrungsmittel und was wir sonst noch brauchten kauften. Diese mussten lange haltbar sein und gut gelagert werden. Der Tag war geführt einfach mit dem Alltäglichen und alle mussten ran.
 
-\***\-Wie war es für dich mit den Jugendlichen?*** Ich hatte die Verantwortung für sie zu sorgen. Also ich konnte ihnen sagen was zu tun ist. Wenn die Jungs das Gefühl hatten machen wir nicht, wir hören nicht auf eine Frau, bat ich denn Skipper denen das klarzumachen. Aber damit hatte ich nicht Mühe.
+\***\-Wie war es für dich mit den Jugendlichen?*** \
+Ich hatte die Verantwortung für sie zu sorgen. Also ich konnte ihnen sagen was zu tun ist. Wenn die Jungs das Gefühl hatten machen wir nicht, wir hören nicht auf eine Frau, bat ich denn Skipper denen das klarzumachen. Aber damit hatte ich nicht Mühe.
 ***Und haben sie dich dann auch respektiert?***
 Ja doch doch, die hatten gemerkt sie können mich nicht kaufen, was ich sage, gilt Punkt. Im Gegensatz zu der Zahlmeisterin, weil sie erwischt wurde, konnten die Jugendlichen mit der machen was sie wollten. 
 
@@ -133,21 +128,22 @@ Also die Herausforderungen waren ganz klar aktiv am Segeln mitzumachen. Ihre Auf
 ***Haben sie dass was sie belastet, ausgedrückt?***
 Ja das kam dann in nicht nur in Worten, weisst du im netten Sätzen zum Ausdruck, das kommt dann mit Wucht zum Ausdruck. Die aktuellen Situationen lösten bei ihnen etwas aus, hinzu kam noch die Belastung aus ihrer Vergangenheit.
 
-\-Wie wurden die Jugendlichen und die Leute kontrolliert, wie wurde der Konsum von Drogen überwacht? Wir versuchten sie vom Drogen Konsum wegzuhalten, also das war die Voraussetzung. In Seuta das ist nur ein Beispiel, die Afrikaner die kannten die Tecktona, die wussten das ist das Drogenschiff. Die kamen mit Drogen am den Hafen wo das Schiff angelegt war. Und wir schlugen mit den langen Paddeln mit denen du das Dingi ruderst, umher damit sie weggingen. 
+**\-Wie wurden die Jugendlichen und die Leute kontrolliert, wie wurde der Konsum von Drogen überwacht?** \
+Wir versuchten sie vom Drogen Konsum wegzuhalten, also das war die Voraussetzung. In Seuta das ist nur ein Beispiel, die Afrikaner die kannten die Tecktona, die wussten das ist das Drogenschiff. Die kamen mit Drogen am den Hafen wo das Schiff angelegt war. Und wir schlugen mit den langen Paddeln mit denen du das Dingi ruderst, umher damit sie weggingen. 
 Also war das am Hafen ein größeres Problem, dass sie dort vielleicht ein Drogen hätten gelangen können?
  Ja die wollten den Jugendlichen Drogen verkaufen, so wie Kätschgummi. Es war immer eine Challenge. Wir mussten wirklich wie Häftlimacher Ohren und alle Sinne offenhalten, um eben zu verhindern, dass die Jugendlichen zu Drogen gelangen und das ist uns wie gesagt nicht immer gelungen. 
 
-\-Was waren für dich schwierigen Momente und was die guten Momente, die du erlebt hat auf dieser reise? 
+**\-Was waren für dich schwierigen Momente und was die guten Momente, die du erlebt hat auf dieser reise?** 
 Also die schwierigen Waren einfach was da abging mit den Jugendlichen und dann auch mit den Erwachsenen das war hardcore. Und das Schöne war, ich war auf dem Meer, ich habe punktuell Städte in fremden Ländern gesehen. 
 
-Was hat dich am meisten herausgefordert?
+**Was hat dich am meisten herausgefordert?**
 Wahrscheinlich der Verantwortung gerecht zu werden.
 
-\-Wie hast du dich wehrend diese Reise gefühlt, was ist dir durch den Kopf gegangen?
+**\-Wie hast du dich wehrend diese Reise gefühlt, was ist dir durch den Kopf gegangen?**
 Ich war sehr angestrengt, also wirklich nicht entspannt. die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesundheit ausgewirkt. 
 
-\-Welche Freundschaften haben sich daraus ergeben auf diese Reise? Keine. 
-Also auch nicht bei den unteren den Leitern?
+**\-Welche Freundschaften haben sich daraus ergeben auf diese Reise?** Keine. 
+**Also auch nicht bei den unteren den Leitern?**
 Die Zahlmeisterin hat dann viel später versucht wieder Kontakt mit mir aufzunehmen. Aber aufgrund von dem, was abgegangen war, hatte ich kein Interesse.
 
 \-Hat dich das Erlebnis bereichert? Ja. 
