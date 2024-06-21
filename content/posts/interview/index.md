@@ -8,27 +8,18 @@ image = "img_0028.jpeg"
 description = ""
 +++
 # ***Weg von den Drogen*** \
+
 ***in einen neuen Lebensabschnitt segeln***
 
 ## *Die Segeltour als Therapie für Exdrogenabhängige*
 
-![](screenshot-183.jpg-1-.png "Segelschiff Tectona")
+![Segelschiff Tectona ](screenshot-183.jpg-1-.png "Segelschiff Tectona")
 
 Segelschiff Tectona
 
-> Deutsch Reportage -Interview 
->
-> ***Datum:*** 02.03.24
->
-> ***Interviewerin:*** Fellen Avril Dickson
->
 > ***Befragte Person:*** 
 > Thérèse Zöller (Pseudonym) Auf Wunsch der Befragten Person wurde der Name geändert\
 > Sozialpädagogin, Begleiterin auf Segelturn mit Exdrogenabhängigen
-
-Danke das du dir die Zeit nimmst um dieses Interview durchzuführen. 
-Sehr gerne, ich habe mich über die Anfrage gefreut. 
-Ich bin gespannt über das Abenteuer das du auf dem Schiff erlebt hast zu erfahren.
 
 ***\-Wie ich gehört habe, nennt man dich „alter Seebär“ wieso beschreibt man dich so?***
 Ich gehe davon aus dass diese Titel Alter Seebär eben daher rührt, weil ich sehr begeistert war mit all den Dingen die Geschahen wärend dieser Reise. 
