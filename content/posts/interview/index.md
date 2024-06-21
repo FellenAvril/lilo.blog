@@ -7,9 +7,7 @@ tags = ["Interview", "Segeltour", "Drogenabhängige"]
 image = "img_0028.jpeg"
 description = ""
 +++
-# ***Weg von den Drogen*** \
-
-***in einen neuen Lebensabschnitt segeln***
+# ***Weg von den Drogen*** ***in einen neuen Lebensabschnitt segeln***
 
 ## *Die Segeltour als Therapie für Exdrogenabhängige*
 
