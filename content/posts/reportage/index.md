@@ -28,8 +28,7 @@ Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz
 
 > ”Es gilt, immer die Augen offen zu halten.”     
 
-Eine Angelschnur schnallt durch die Luft. Da fällt ihr Fokus auf dem Jüngsten der Jugendlichen. \
-Er wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor. Die Fische die er fängt, werden an Deck zubereitet und genussvoll verschlungen. Dies ist ein Erfolgserlebnis für ihn.\
+Eine Angelschnur schnallt durch die Luft. Da fällt ihr Fokus auf dem Jüngsten der Jugendlichen. Er wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor. Die Fische die er fängt, werden an Deck zubereitet und genussvoll verschlungen. Dies ist ein Erfolgserlebnis für ihn.\
 Nun schweift ihr Blick zurück an Bord, den Herausforderungen entgegen.\
 Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und fünf Männer, 17- bis 25-jährige Schweizer und Spanier. Sie haben viel erlebt und angerichtet, bis sie von den Jugendanwaltschaften auf diesen Törn geschickt wurden. Um wegzukommen von ihren alten Muster.
 
