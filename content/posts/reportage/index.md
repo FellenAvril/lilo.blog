@@ -10,8 +10,6 @@ image = "img_0085.jpeg"
 
 ## ***Segeltour für Drogenabhängige im Entzug***
 
-
-
 > Dies ist die Reise von Thérèse Zöller (Pseudonym) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer, selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
 > Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei.
 
@@ -20,9 +18,9 @@ image = "img_0085.jpeg"
 ***Die Reise auf der Tectona:***\
 Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Planken, die Hände auf der eisigen metallenen Reling der Tectona. In der frischen Luft hängt ein Geruch von Meeressalz. Die lauten Stimmen von Jugendlichen, denen Anweisungen zugeteilt werden, treten in den Hintergrund und verstummen.
 
-Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der Organisation Plus Schweizer Jugend zur See geführt wird. Dieser Segeltörn dient als anschliessende Therapie für Drogenabhängige Jugendliche nach dem Entzug.
+Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der **Organisation Plus Schweizer Jugend zur See** geführt wird. Dieser Segeltörn dient als anschliessende Therapie für Drogenabhängige Jugendliche nach dem Entzug.
 
-***Augaben:***\
+***Aufgaben:***\
 Sie als Soziapädagogin, ist verantwortlich für das Verhalten der Jugendlichen. Die weiteren Begleiter sind der erfahrene Kapitän, der das Sagen übers Schiff hat, der Co-Skipper der auf dem Deck arbeitet und die Zahlmeisterin, die die Verantwortung hat, die Buchhaltung und das Journal mit den Ereignissen der Reise zu führen.
 
 ***An Deck:*** \
