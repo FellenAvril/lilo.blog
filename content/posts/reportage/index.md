@@ -8,7 +8,7 @@ image = "img_0085.jpeg"
 +++
 # ***Segeltour für Drogenabhängige im Entzug***
 
-> Thérèse Zöller (Pseudonym) begibt sich auf eine Reise übers offene Meer. Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Sie hat mit ihren Söhnen, ein Segelpadent für auf offene See absolviert. Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei.
+> Thérèse Zöller (Pseudonym) begibt sich auf eine Reise übers offene Meer. Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Sie hat mit ihren Söhnen, ein Segelpadent für auf offene See absolviert. Sie ist Sozialpädagogin und als Begleiterin auf dem Segeltörn mit Exdrogenabhängigen dabei.
 
 ![Segelschiff Tectona ](img_0085.jpeg "Segelschiff Tectona")
 
@@ -18,14 +18,14 @@ Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Pl
 Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der **Organisation Plus Schweizer Jugend zur See** geführt wird. Dieser Segeltörn dient als anschliessende Therapie für Drogenabhängige Jugendliche nach dem Entzug.
 
 ***Aufgaben***\
-Sie als Soziapädagogin, ist verantwortlich für das Verhalten der Jugendlichen. Die weiteren Begleiter sind der erfahrene Kapitän der das Sagen übers Schiff hat, der Co-Skipper der auf dem Deck arbeitet und die Zahlmeisterin, die die Verantwortung hat die Buchhaltung und das Journal mit den Ereignissen der Reise zu führen.
+Sie als Soziapädagogin ist verantwortlich für das Verhalten der Jugendlichen. Die weiteren Begleiter sind der erfahrene Kapitän der das Sagen übers Schiff hat, der Co-Skipper, der auf dem Deck arbeitet, und die Zahlmeisterin, die die Verantwortung hat die Buchhaltung und das Journal mit den Ereignissen der Reise zu führen.
 
 ***An Deck***\
-Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hin-und Her schwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden. Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum, das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
+Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hinu$nd Her schwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden. Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
 
 > ”Es gilt, immer die Augen offen zu halten.”     
 
-Eine Angelschnur schnallt durch die Luft. Da fällt ihr Fokus auf dem Jüngsten der Jugendlichen. Er wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor. Die Fische die er fängt, werden an Deck zubereitet und genussvoll verschlungen. Dies ist ein Erfolgserlebnis für ihn.\
+Eine Angelschnur schnallt durch die Luft. Da fällt ihr Fokus auf den Jüngsten der Jugendlichen. Er wirft die Fischerrute über die Reling ins Wasser und fischt begeistert. Mit seinen scharfen Augen verfolgt er, wie die Angelschnur runter saust, in die wilden Wellen hinein, der weisse Schaum spritzt aus dem tiefen Blau hervor. Die Fische die er fängt, werden an Deck zubereitet und genussvoll verschlungen. Dies ist ein Erfolgserlebnis für ihn.\
 Nun schweift ihr Blick zurück an Bord, den Herausforderungen entgegen.\
 Hier sieht sie die anderen sechs Jugendlichen. Insgesamt sind es zwei Frauen und fünf Männer, 17- bis 25-jährige Schweizer und Spanier. Sie haben viel erlebt und angerichtet, bis sie von den Jugendanwaltschaften auf diesen Törn geschickt wurden. Um wegzukommen von ihren alten Muster.
 
