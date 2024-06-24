@@ -8,6 +8,8 @@ image = "img_0085.jpeg"
 +++
 ##### Ein Neuanfang- Die Segeltour für Drogenabhängige im Entzug. Schaffen die Jugendlichen es durch diese Reise auf dem Segelschiff Tectona, weg von den Drogen zu gelangen, zurück in die Gegenwart? Dies ist ihnen selbst überlassen, es liegt in ihrer eigenen Hand. Können sie es Packen oder lassen sie ihr Leben an sich vorbeirauschen? Auf der Tectona nimmt diese lebensverändernde Reise ihren Lauf. 
 
+
+
 > Thérèse Zöller (Pseudonym) begibt sich auf eine Reise übers offene Meer. Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Sie hat mit ihren Söhnen, ein Segelpadent für auf offene See absolviert. Sie ist Sozialpädagogin und als Begleiterin auf dem Segeltörn mit Exdrogenabhängigen dabei.
 
 ![Segelschiff Tectona ](img_0085.jpeg "Segelschiff Tectona")
