@@ -11,12 +11,10 @@ description = ""
 
 ## *Die Segeltour als Therapie für Exdrogenabhängige*
 
-![Segelschiff Tectona ](screenshot-183.jpg-1-.png "Segelschiff Tectona")
-
-Segelschiff Tectona
+![Segelschiff Tectona](screenshot-183.jpg-1-.png "Segelschiff Tectona")
 
 > ***Befragte Person:*** 
-> Thérèse Zöller (Pseudonym, auf Wunsch der Befragten Person wurde der Name geändert) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer, selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
+> Thérèse Zöller (Pseudonym, auf Wunsch der Befragten Person wurde der Name geändert) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
 > Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei. In diesem Interview erzählt sie von ihrer Reise auf der Tectona im Jahr 1994.
 
 ***\-Wie ich gehört habe, nennt man dich „alter Seebär“ wieso beschreibt man dich so?***
@@ -29,12 +27,13 @@ Das Meer war immer ein Anziehungspunkte für mich. Ich habe mit meinen 3 Söhnen
 ***\-Was war das für eine Schifffahrt auf der du dabei warst?*** 
 Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation Plus Schweizer Jugend zur See, geführt wurde. Auf diesem Schiff fanden Turns statt, die mit Jugendlichen, nach dem Drogenentzug, einen Turn fuhren als Therapie. Auf dem Schiff waren mehrere Betreuer und Jugendliche. Sieben Monate, September 1994 bis März 1995, waren wir zusammen auf der Summertörn unterwegs.
 
-***\-Welche Route seid ihr mit dem Schiff gefahren und was habt ihr auf dem Weg entdeckt?***
-Von Mulin fuhren wir mit dem Zug über die Alpen. Dort sattelten wir die Velos und fuhren nach Villanueva bis zum Schiff, um sportlich aktiv zu sein, als Therapie für die Jugendlichen. Das Schiff war in Villanueva Spanien, das ist 30 Kilometer südlich von Barcelona. Da ging es das Mittelmeer runter und ankerten in Seeuta, das ist eine spanische Enklave auf dem afrikanischen Kontinent. Von Seeuta ging es dann weiter durch die Straße von Gibraltar zu Saopaulo der Inselgruppe von Madeira. Da hatten wir pech mit dem Wetter, es zerschlug ein Teil des Schiffs, das bevor wir weiterfahren konnten repariert werden musste. Dann nach Madeira und von Madeira runter zu den Kapverden. Und von den Kapverden rauf zu den Azoren. Von da aus steuerten wir auf Tanger zu. Weil wir dort ein Dokument stempeln mussten, dies war eine versicherungstechnische Frage, da wir ausserhalb der Europäischen Grenze am Segeln waren. Wir erreichten Tanger nicht, wir kehrten halbwegs zurück und gingen dann ins Mittelmeer. Hier konnten wir erneut wegen der Wetter und Windbedingungen nicht direkt nach Villanueva zurück. Wir mussten den Umweg fahren über die Balearen und dann nach den Balearen kamen wir wieder in Villanueva an. Von dort ging es dann per Zug nach Zürich, nach Hause.
+***Welche Route seid ihr mit dem Schiff gefahren und was habt ihr auf dem Weg entdeckt?***
+Von Mulin fuhren wir mit dem Zug über die Alpen. Dort sattelten wir die Velos und fuhren nach Villanueva bis zum Schiff, um sportlich aktiv zu sein, als Therapie für die Jugendlichen. Das Schiff war in Villanueva Spanien, das ist 30 Kilometer südlich von Barcelona. Da ging es das Mittelmeer runter und ankerten am Hafen von Seeuta, das ist eine spanische Enklave auf dem afrikanischen Kontinent. Von Seeuta ging es dann weiter durch die Straße von Gibraltar nach Saopaulo, der Inselgruppe von Madeira. Da hatten wir Pech mit dem Wetter, es zerschlug einen Teil des Schiffs, das, bevor wir weiterfahren konnten, repariert werden musste. Dann ging die Route nach Madeira und von Madeira runter zu den Kapverden und von den Kapverden weiter, rauf zu den Azoren. Von da aus steuerten wir auf Tanger zu, weil wir dort ein Dokument stempeln mussten. Dies war eine versicherungstechnische Frage, da wir ausserhalb der Europäischen Grenzen am Segeln waren. Wir erreichten Tanger nicht, kehrten halbwegs zurück und fuhren dann übers Mittelmeer. Hier konnten wir erneut wegen dem Wetter- und Windbedingungen nicht direkt nach Villanueva zurück. Wir mussten den Umweg fahren über die Balearen und dann nach den Balearen kamen wir wieder in Villanueva an. Von dort ging es dann per Zug nach Zürich, nach Hause.%
 
-***Was war das für ein Schiff auf dem ihr wart?*** Das Schiff hiss Tectona und war 1929 in Indien erbaut worden. Sie heisst Tectona, weil sie aus Tickholz erbaut wurde. Sie ist 24 Meter lang und acht bis zehn Meter breit. Ein kleines feines Segelschiff. Das Segelschiff war ursprünglich ein Segelschiff ohne Motor. Der Motor wurde im Nachhinein eingebaut. Normalerweise ist bei einem Schiff die Schiffsschraube gerade reingebaut, hier wurde es aber schräg eingebaut. Dies führt zu einem speziellen Seegang, weil das Schiff anders reagiert auf die Wellen und dem Wind, auf welches man beim Segeln achten muss.
+***Was war das für ein Schiff auf dem ihr wart?*** \
+Das Schiff hiess Tectona und war 1929 in Indien erbaut worden. Sie heisst Tectona, weil sie aus Tiekholz erbaut wurde. Sie ist 24 Meter lang und acht bis zehn Meter breit. Ein kleines, feines Segelschiff. Das Segelschiff war ursprünglich ein Segelschiff ohne Motor. Der Motor wurde im Nachhinein eingebaut. Normalerweise ist bei einem Schiff die Schiffsschraube gerade reingebaut, hier wurde es aber schräg eingebaut. Dies führt zu einem speziellen Seegang, weil das Schiff anders reagiert auf die Wellen und den Wind, auf dies muss man beim Segeln achten.%
 
-***\-Wie hast du Zugang bekommen bei dieser Schifffahrt dabei zu sein, wie konnte man sich anmelden?*** 
+***\-Wie hast du Zugang den bekommen um bei dieser Schifffahrt dabei zu sein, wie konnte man sich anmelden?*** 
 Eine meiner Freundinnen war Bereichsleiterin. Sie war Verantwortlich für die Vorbereitung die Begleitung und die Nachbereitung der Turns, die zweimal im Jahr stattfanden. 
 Ich wollte wissen was hinter diesen Turns steckt, also ging ich zu meiner Freundin und fragte ob ich   auf so einem Turn mitfahren kann als Mitarbeitende. 
 
