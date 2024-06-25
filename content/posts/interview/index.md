@@ -94,13 +94,8 @@ Auf dem Schiff musste alles zu jeder Zeit überwacht werden.
 Die 24 Tages und Nachtstunden wurden zwischen uns Leitern in Schichten aufgeteilt.
 Die Schichten waren jeweils 4 Stunden. In diesen Stunden, war jeweils diese Person verantwortlich für das Gesamthafte. Während meiner Wache ging die Sonne unter, da konnte ich den Sonnenuntergang bewundern und kam die Sonne am anderen Tag wieder rauf da konnte ich den Sonnenaufgang bewundern. Das war einfach himmlisch, also das hat mich entschädigt für vieles was da auf dem Schiff schiefging.
 
-***Welche Aufgaben und regeln musste man erfüllen?***
-Der Skipper war verantwortlich für das Schiff, also was der sagte das wurde umgesetzt, weil der war ein ganz hervorragender Kapitän, der alter deutsche Mann hatte eine Unmenge an Erfahrung. Auf dem Schiff gab es jegliche Sachen, zu tun je nach Wind je nach was gerade anfiel, musste der sagen was zu tun ist.
-Es galt auf dem Schiff zu haushalten, waschen, kochen und aufräumen. Wenn wir an Land legten, gingen wir einkaufen, das nennt man Bunkern. Als wir Bunkern gingen, mussten wir überlegen, wie lange die Fahrt bis zum nächsten Hafen dauert und Verzögerungen einberechnen, je nachdem wie der Wind mitmacht oder nicht. Wir mussten schauen, dass wir für diese Zeit genug Nahrungsmittel und was wir sonst noch brauchten kauften. Diese mussten lange haltbar sein und gut gelagert werden. Der Tag war geführt einfach mit dem Alltäglichen und alle mussten ran.
 
-\***\-Wie war es für dich mit den Jugendlichen?*** \
-Ich hatte die Verantwortung für sie zu sorgen. Also ich konnte ihnen sagen was zu tun ist. Wenn die Jungs das Gefühl hatten machen wir nicht, wir hören nicht auf eine Frau, bat ich denn Skipper denen das klarzumachen. Aber damit hatte ich nicht Mühe.
-***Und haben sie dich dann auch respektiert?***
+***\-Haben die Jgendliche dich respektiert?***
 Ja doch doch, die hatten gemerkt sie können mich nicht kaufen, was ich sage, gilt Punkt. Im Gegensatz zu der Zahlmeisterin, weil sie erwischt wurde, konnten die Jugendlichen mit der machen was sie wollten. 
 
 **\-Wie konntest du denn Jugendlichen helfen?**
@@ -115,9 +110,6 @@ Ja das kam dann in nicht nur in Worten, weisst du im netten Sätzen zum Ausdruck
 Wir versuchten sie vom Drogen Konsum wegzuhalten, also das war die Voraussetzung. In Seuta das ist nur ein Beispiel, die Afrikaner die kannten die Tecktona, die wussten das ist das Drogenschiff. Die kamen mit Drogen am den Hafen wo das Schiff angelegt war. Und wir schlugen mit den langen Paddeln mit denen du das Dingi ruderst, umher damit sie weggingen. 
 Also war das am Hafen ein größeres Problem, dass sie dort vielleicht ein Drogen hätten gelangen können?
  Ja die wollten den Jugendlichen Drogen verkaufen, so wie Kätschgummi. Es war immer eine Challenge. Wir mussten wirklich wie Häftlimacher Ohren und alle Sinne offenhalten, um eben zu verhindern, dass die Jugendlichen zu Drogen gelangen und das ist uns wie gesagt nicht immer gelungen. 
-
-**\-Was waren für dich schwierigen Momente und was die guten Momente, die du erlebt hat auf dieser reise?** 
-Also die schwierigen Waren einfach was da abging mit den Jugendlichen und dann auch mit den Erwachsenen das war hardcore. Und das Schöne war, ich war auf dem Meer, ich habe punktuell Städte in fremden Ländern gesehen. 
 
 **Was hat dich am meisten herausgefordert?**
 Wahrscheinlich der Verantwortung gerecht zu werden.
@@ -136,11 +128,6 @@ Ja. Also jetzt sowieso nicht mehr ich wäre zu alt, aber damals ja. Ich habe une
 Das ist stark dass du dass auch wenn es schwierig war nochmals durchgezogen hättest. 
 **Gäbe es Sachen die du jetzt anders oder besser machen könntest?** \
 Besser nicht. 
-
-**Du hast den ganzen Törn duchgezogen, das ist eine grosse Leistung?**
-Ja ich kann das vielleicht so sagen, also ich blöffe jetzt, Wir brachten alle 7 Jugendliche zurück. Es gab vorher mal ein Turn beidem das Schiff sank. Nur die Pädagogische Leitung und ein Jugendlicher überlebten, diese 2 Personen überlebten, alle anderen sanken mit dem Schiff ab. 
-Wir waren so gesegnet, ich kann es nicht anders sagen, wir waren so gesegnet, wir brachten alle 7 zurück.
-Dadurch wurde ich dann angefragt vom Verein, ob ich bereit wäre in den Vorstand einzutreten, um meine Erfahrungen einzubringen. Im Vorstand waren auch ein Jurist, eine Lehrkraft und ein Segler.
 
 **\-Wie hat diese Fahrt den Passagieren geholfen und was war das Ziel an dieser Fahrt?**
 Das Ziel war die Jugendliche in das hier und jetzt zu bringen, in die Realität dieser harten Welt. Du gehst nicht auf die Gasse, Kiffst und bringst dich mit Drogen um. Das ist eine Art des Lebens aber das ist nicht die Gesellschaft taugliche. Das Ziel war sie nach Möglichkeit in die Gesellschaft hereinzubringen.
