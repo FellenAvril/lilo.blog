@@ -18,14 +18,14 @@ description = ""
 > Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei. In diesem Interview erzählt sie von ihrer Reise auf der Tectona im Jahr 1994.
 
 ***\-Wie ich gehört habe, nennt man dich „alter Seebär“ wieso beschreibt man dich so?***
-Ich gehe davon aus dass diese Titel Alter Seebär eben daher rührt, weil ich sehr begeistert war mit all den Dingen die Geschahen wärend dieser Reise. 
-Es ging darum das die Arbeit auf dem Schiff Präzision, Gegenwart und Aktivität erforderte. Man muss dabei sein. Also es geht nicht dass man lauert wie wir sagen, wenn die Fahrt erfolgreich sein soll, das macht ein alter Seebär aus. 
+Ich gehe davon aus, dass dieser Titel *„*Alter Seebär” daher rührt, weil ich sehr begeistert war mit all den Dingen, die wärend dieser Reise geschahen. 
+Es ging darum, dass die Arbeit auf dem Schiff Präzision und Aktivität erforderte. Man muss anpacken, im heir und jetzt. Also es geht nicht, dass man lauert, wie wir sagen, wenn die Fahrt erfolgreich sein soll. Das macht ein alter Seebär aus. %
 
 ***\-Woher kommt deine Leidenschaft für das Meer und das Segeln?*** 
-Das Meer war immer ein Anziehungspunkte für mich. Ich habe mit meinen 3 Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See Ausweis also See gleich Meer Ausweis. Und wie ich den hatte, meldete ich mich bei der Plus Schweizer Jung zur See, mit der Bitte sie sollen mich auf so einen Törn als Mitarbeiterin schicken. 
+Das Meer war immer ein Anziehungspunkt für mich. Ich habe mit meinen drei Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See-Ausweis, also See- gleich Meer-Ausweis. Und wie ich den hatte, meldete ich mich bei der *„*Plus Schweizer Jung zur See“, mit der Bitte, sie sollen mich auf so einen Törn als Mitarbeiterin schicken. % 
 
 ***\-Was war das für eine Schifffahrt auf der du dabei warst?*** 
-Einer meiner vielen Arbeitsstellen meiner Erwerbstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation Plus Schweizer Jugend zur See, geführt wurde. Auf diesem Schiff fanden Turns statt, die mit Jugendlichen, nach dem Drogenentzug, einen Turn fuhren als Therapie. Auf dem Schiff waren mehrere Betreuer und Jugendliche. Sieben Monate, September 1994 bis März 1995, waren wir zusammen auf der Summertörn unterwegs.
+Einer meiner vielen Arbeitsstellen als Sozialpädagogin fand auf der Tectona statt, das ist ein Segelschiff, das von der Organisation *„*Plus Schweizer Jugend zur See” geführt wurde. Auf diesem Schiff fanden Törns statt, die mit Jugendlichen, nach dem Drogenentzug, als Therapie einen Törn fuhren. Auf dem Schiff waren mehrere Betreuer und Jugendliche. Sieben Monate, September 1994 bis März 1995, waren wir zusammen auf der Summertörn unterwegs.%
 
 ***Welche Route seid ihr mit dem Schiff gefahren und was habt ihr auf dem Weg entdeckt?***
 Von Mulin fuhren wir mit dem Zug über die Alpen. Dort sattelten wir die Velos und fuhren nach Villanueva bis zum Schiff, um sportlich aktiv zu sein, als Therapie für die Jugendlichen. Das Schiff war in Villanueva Spanien, das ist 30 Kilometer südlich von Barcelona. Da ging es das Mittelmeer runter und ankerten am Hafen von Seeuta, das ist eine spanische Enklave auf dem afrikanischen Kontinent. Von Seeuta ging es dann weiter durch die Straße von Gibraltar nach Saopaulo, der Inselgruppe von Madeira. Da hatten wir Pech mit dem Wetter, es zerschlug einen Teil des Schiffs, das, bevor wir weiterfahren konnten, repariert werden musste. Dann ging die Route nach Madeira und von Madeira runter zu den Kapverden und von den Kapverden weiter, rauf zu den Azoren. Von da aus steuerten wir auf Tanger zu, weil wir dort ein Dokument stempeln mussten. Dies war eine versicherungstechnische Frage, da wir ausserhalb der Europäischen Grenzen am Segeln waren. Wir erreichten Tanger nicht, kehrten halbwegs zurück und fuhren dann übers Mittelmeer. Hier konnten wir erneut wegen dem Wetter- und Windbedingungen nicht direkt nach Villanueva zurück. Wir mussten den Umweg fahren über die Balearen und dann nach den Balearen kamen wir wieder in Villanueva an. Von dort ging es dann per Zug nach Zürich, nach Hause.%
@@ -34,21 +34,21 @@ Von Mulin fuhren wir mit dem Zug über die Alpen. Dort sattelten wir die Velos u
 Das Schiff hiess Tectona und war 1929 in Indien erbaut worden. Sie heisst Tectona, weil sie aus Tiekholz erbaut wurde. Sie ist 24 Meter lang und acht bis zehn Meter breit. Ein kleines, feines Segelschiff. Das Segelschiff war ursprünglich ein Segelschiff ohne Motor. Der Motor wurde im Nachhinein eingebaut. Normalerweise ist bei einem Schiff die Schiffsschraube gerade reingebaut, hier wurde es aber schräg eingebaut. Dies führt zu einem speziellen Seegang, weil das Schiff anders reagiert auf die Wellen und den Wind, auf dies muss man beim Segeln achten.%
 
 ***\-Wie hast du Zugang den bekommen um bei dieser Schifffahrt dabei zu sein, wie konnte man sich anmelden?*** 
-Eine meiner Freundinnen war Bereichsleiterin. Sie war Verantwortlich für die Vorbereitung die Begleitung und die Nachbereitung der Turns, die zweimal im Jahr stattfanden. 
-Ich wollte wissen was hinter diesen Turns steckt, also ging ich zu meiner Freundin und fragte ob ich   auf so einem Turn mitfahren kann als Mitarbeitende. 
+Eine meiner Freundinnen war Bereichsleiterin. Sie war verantwortlich für die Vorbereitung, die Begleitung und die Nachbereitung der Törns, die zweimal im Jahr stattfanden. 
+Ich wollte wissen, was hinter diesen Törns steckt, also ging ich zu meiner Freundin und fragte, ob ich als Mitarbeitende auf so einem Turn mitfahren kann.% 
 
 ***\-Was hat dich gepackt und motiviert dabei zu sein?***
-Ich träumte schon lange vorher, von den Bergen zum Meeresstrand zu gellangen und in die Ferne zu schauen, den Abenteuer entgegen. Das offene Meer zu besegeln und die Inseln weit draussen zu entdecken. Jahre später setzten sich diese Träume um.
-Das hat dich dann zu dieser Segelfahrt geführt.
+Ich träumte schon lange vorher, von den Bergen zum Meeresstrand zu gelangen und in die Ferne zu schauen, den Abenteuer entgegen. Das offene Meer zu besegeln und die Inseln weit draussen zu entdecken. Jahre später setzten sich diese Träume um.
+Das hat mich dann zu dieser Segelfahrt geführt.%
 
 ***\-Was waren die Rollen der Begleiter?***
-Der Skipper ist der Kapitän, er hat die Verantwortung auf dem Schiff und die Fahrt, also alles Nautische oblag ihm. Der Coskipper stiess in Vilanueva dazu, er arbeitete auf dem Schiff und unterstütze den Skipper. Die Zahlmeisterin hatte dafür zu schauen, dass unser Geld korrekt ausgegeben wird. Das die Buchhaltung, das Journal der Ausgaben, korrekt geführt wird. Ihre Herausforderung war es das es damals noch die verschiedenen Währungen in den verschiedenen Ländern gab, also Frankreich, Spanien, Portugal.
-Die Pädagogische Leitung die verantwortlich ist für alles was mit den Jugendlichen passierte und sich um die Jugendliche kümmerte, das oblag mir.
+Der Skipper ist der Kapitän, er hat die Verantwortung auf dem Schiff und für die Fahrt, also alles Nautische oblag ihm. Der Co-Skipper stiess in Vilanueva dazu. Er arbeitete auf dem Schiff und unterstütze den Skipper. Die Zahlmeisterin hatte dafür zu schauen, dass unser Geld korrekt ausgegeben wird sowie die Buchhaltung, das Journal der Ausgaben, korrekt geführt wird. Ihre Herausforderung war es, dass es damals noch die verschiedenen Währungen in den verschiedenen Ländern gab, also Frankreich, Spanien, Portugal.
+Die Pädagogische Leitung, die verantwortlich ist für alles, was mit den Jugendlichen passierte und sich um die Jugendliche kümmerte, das oblag mir.%
 
 ***\-Was für Aufgaben habt ihr gemacht damit ihr euch besser kennenlernt?*** 
 Es ist die Aufgabe der Erwachsenen, dafür zu sorgen dass diese Team Findung stattfinden konnte, so dass man sich kennenlernte. 
-Wir haben den Alltag der ganz einfache Alltag erlebt. Es ist von grosser wichtigkeit dass man sich gegenseitig kennenlernt Schwächen und Stärken. Weil wenn du dann auf dem Schiff bist, ist es gut und hilfreich, wenn du eine Ahnung hast wie der andere tickt.
-Und das waren ja alles Jugendliche nach dem Drogenentzug und wenn du einen Drogenentzug machst, dann bist du noch weit entfernt von clean, wir hatten dort 7 Flöhe. Die alles daran setzten uns hinters Licht zu führen, um wieder an Drogen zu kommen. Das war unsere Aufgabe, zu schauen, dass die Drogen draussen bleiben und dass ist uns nicht ganz gelungen, darum spreche ich von Flöhen. 
+Wir haben den Alltag, den ganz einfachen Alltag erlebt. Es ist von grosser Wichtigkeit, dass man sich gegenseitig kennenlernt, Schwächen und Stärken. Wenn du dann auf dem Schiff bist, ist es gut und hilfreich, wenn du eine Ahnung hast, wie der andere tickt.
+Und das waren ja alles Jugendliche nach dem Drogenentzug und, wenn du einen Drogenentzug machst, dann bist du noch weit entfernt von clean. Wir hatten dort 7 Flöhe, die alles daran setzten uns hinters Licht zu führen, um wieder an Drogen zu kommen. Das war unsere Aufgabe: zu schauen, dass die Drogen draussen bleiben. Das ist uns nicht ganz gelungen, darum spreche ich von Flöhen. %
 
 ***\-Wie war das Team, wie hast du es erlebt im Team?***
 Die Team Zusammensetzung war phänomenal, ganz perfekt durchmischt. Es sind 4 Erwachsenen mit 7 Jugendlichen 2 Frauen 5 Männer.
