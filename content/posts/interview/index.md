@@ -87,7 +87,7 @@ Segel setzen, Segel runternehmen, Segel in andere Richtung setzen, kochen, wasch
 \***\-Was hast du wen du an Bord warst und in die ferne geschaut hast gesehen und wie war die Atmosphäre für dich?*** 
 Also das Meer hat mich durchgetragen, es hat mich durch die harten Momente begleitet, diese reise brauchte viel kraft und enerie, es war hart. Die Jugendlichen, nicht freundschaftlich waren, sind sehr anspruchsfoll. Mann musst ständig aufmerkasm sein. was machen sie wieder, wie geht’s, wer schlägt wenn zusammen, weil irgendetwas jenem nicht gepasst hat.
 Aber das Meer war das schöne. Wir sahen zum Beispiel mal eine Schildkröte weit draussen im Meer, um einem herum einfach Meer und noch mehr Meer. Wie wir uns Spanien wieder nährten, kam uns ein Schmetterling entgegen, draussen auf dem Meer. Ich vermute ein Wind hat ihn dorthin mitgenommen.
-Als wir dann wieder im Mittelmeer waren sahen wir Wale, auch als wir denn Atlantik runtersegelten. Das eine jugendliche Mädchen war neben dem Kartenhaus bei der Reiling und ruft auf einmal „ein Wal“ Er ist neben dem Schiff geschwommen und aufgetaucht. 
+Als wir dann wieder im Mittelmeer waren sahen wir Wale, auch als wir denn Atlantik runtersegelten. Das eine jugendliche Mädchen war neben dem Kartenhaus bei der Reeling und ruft auf einmal „ein Wal“ Er ist neben dem Schiff geschwommen und aufgetaucht. %
 
 \***\-Wie war ein Tages Ablauf auf dem Schiff?***
 Auf dem Schiff musste alles zu jeder Zeit überwacht werden.
@@ -103,11 +103,6 @@ Ich hatte die Verantwortung für sie zu sorgen. Also ich konnte ihnen sagen was 
 ***Und haben sie dich dann auch respektiert?***
 Ja doch doch, die hatten gemerkt sie können mich nicht kaufen, was ich sage, gilt Punkt. Im Gegensatz zu der Zahlmeisterin, weil sie erwischt wurde, konnten die Jugendlichen mit der machen was sie wollten. 
 
-\***\-In dieser Zeit die du für dich hattest was hast du gemacht, damit du dich besser fühlst?*** 
-Gebetet und wir hatten auch wenn wir dann an Land waren, einige Freitage wo eins der Erwachsen sich von dieser Gruppe entfernen durfte und zum Beispiel in einem Hotel schlafen gehen konnte, bevor man wieder zurückkehrte zu der Gruppe und ein anderer Erwachsene in die Freitage ging. Das, was auf dem Schiff mit den Jugendlichen Tag täglich Nacht nächtlich abging, war so eine Anspannung. Dass diese Freitage dazu dienten diese Spannung etwas loszulassen. Ich mag mich an eine Situation erinnern wo ich in einem Hotel ein Bad nahm und das war sowas von erlösend. Dieses Bad, wusste ich so zu schätzen. Einfach ausruhen. 
-Du hattest also einen,Tag für dich alleine wo du dann im Hotel übernachten konntest, 
-***Was hast du sonst noch erlebt an diesen Freitagen?***
-Als wir auf den Kanaren im Hafen anlegten, mietete ich in der Hauptstadt für meine Freitage ein Auto, um die Insel zu erkunden. Ich fuhr von Dorf zu Dorf in den Abend hinein. Das eine Dorf war Pumpe voll mit englischen und deutschen Touristen das war einfach eine Einbahnstrasse mit Einkaufsläden, das hat mich abgelöscht. Nachdem ich in einem Süssigkeitladen landete, wo ich mir ein Sack füllte voll Täffeli, Gummibärchen und all dieses süsse Zeugs, diesem Schissdreck. Danach hab ich mich entschieden da bleibe ich nicht, also fuhr ich weiter um die Insel herum es war Nacht, ich war am Süssigkeiten essen und fand kein Hotel. Letztendlich bin ich wieder in der Hauptstadt gelandet, von wo ich fliehen wollte. Da bin ich dann halt ins Hotel gegangen und habe im Hotel übernachtet.
 **\-Wie konntest du denn Jugendlichen helfen?**
 Indem dass ich authentisch, gerecht, nett und mit Zuwendung aber nicht Zuwendung die du dann um den Finger wickeln kannst, gegenüber trat. 
 
@@ -128,20 +123,13 @@ Also die schwierigen Waren einfach was da abging mit den Jugendlichen und dann a
 Wahrscheinlich der Verantwortung gerecht zu werden.
 
 **\-Wie hast du dich wehrend diese Reise gefühlt, was ist dir durch den Kopf gegangen?**
-Ich war sehr angestrengt, also wirklich nicht entspannt. die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesundheit ausgewirkt. 
-
-**\-Welche Freundschaften haben sich daraus ergeben auf diese Reise?** \
-Keine. 
-**Also auch nicht bei den unteren den Leitern?**
-Die Zahlmeisterin hat dann viel später versucht wieder Kontakt mit mir aufzunehmen. Aber aufgrund von dem, was abgegangen war, hatte ich kein Interesse.
+Ich war sehr angestrengt, also wirklich nicht entspannt. die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesundheit ausgewirkt.
 
 **\-Hat dich das Erlebnis bereichert?** \
 Ja. 
 
 **\-Wie fühltest du dich als du zurückkamst von dieser Reise?**\
 Ich musste mich erholen. Also ich war ausgepumpt.
-**Als du zurückkamst, konntest du gerade weiter machen?** \
-Mein Leben ist ein Puzzle, da kommt alle 2-4 Jahre etwas Neues rein und eines reit sich ans andere. Als ich von diesem Schiff zurückkam, erhielt ich meine nächste Stelle in Oberried am Zürichsee und dort ging es in einem völlig anderen Film weiter.
 
 **\-Würdest du es nochmal machen?** \
 Ja. Also jetzt sowieso nicht mehr ich wäre zu alt, aber damals ja. Ich habe unendlich viele tiefe Erfahrungen gemacht auf breiter Basis. 
@@ -149,15 +137,10 @@ Das ist stark dass du dass auch wenn es schwierig war nochmals durchgezogen hät
 **Gäbe es Sachen die du jetzt anders oder besser machen könntest?** \
 Besser nicht. 
 
-**Du hast den ganzen Turn duchgezogen, das ist eine grosse Leistung?**
+**Du hast den ganzen Törn duchgezogen, das ist eine grosse Leistung?**
 Ja ich kann das vielleicht so sagen, also ich blöffe jetzt, Wir brachten alle 7 Jugendliche zurück. Es gab vorher mal ein Turn beidem das Schiff sank. Nur die Pädagogische Leitung und ein Jugendlicher überlebten, diese 2 Personen überlebten, alle anderen sanken mit dem Schiff ab. 
 Wir waren so gesegnet, ich kann es nicht anders sagen, wir waren so gesegnet, wir brachten alle 7 zurück.
-Dadurch wurde ich dann angefragt vom Verein, ob ich bereit wäre in den Vorstand einzutreten, um meine Erfahrungen einzubringen. Im Vorstand waren auch ein Jurist, eine Lehrkraft und ein Segler.\
-**Hast du das dann angenommen?** \
-Ja. Und wie war das? Nach drei Jahren in denen weitere Schiffturns organisiert wurden, mussten wir schweren Herzen uns dazu entscheiden den Verein aufzulösen und zu schliessen. Die Voraussetzungen wurden schwieriger, zum Beispiel mit der Jugendanwaltschaft die nicht mehr bezahlen wollte. Es kam so die Idee das dieses Therapieangebot ist viel zu teuer ist, für was es bringt. Weil wir gingen von drei Möglichkeiten aus, eine ist es kommt gut die Jugendlichen die sind dann clean und nehmen ihr Leben in ihre Hände und es geht. Ein Drittel, komm zu sich, hascht vielleicht noch, kann sich nicht ganz stabilisieren und ein Drittel geht schlimm aus.
-**Also gibt es jetzt dieser Verein und dieses Angebot nicht mehr?** 
-Ja leider gibt es Plus Schweizer zur See nicht mehr. 
-Es gibt aber eine andere Institution die heisst der Stern, Wimmis. Die haben ein ähnliches Angebot, aber es läuft nicht genauso wie bei uns. Bei denen fährt das Schiff immer seine Route und die Jugendlichen kommen jeweils für eine bestimmte Zeit aufs Schiff, sie steigen an einem Ort ein und dann wieder raus.
+Dadurch wurde ich dann angefragt vom Verein, ob ich bereit wäre in den Vorstand einzutreten, um meine Erfahrungen einzubringen. Im Vorstand waren auch ein Jurist, eine Lehrkraft und ein Segler.
 
 **\-Wie hat diese Fahrt den Passagieren geholfen und was war das Ziel an dieser Fahrt?**
 Das Ziel war die Jugendliche in das hier und jetzt zu bringen, in die Realität dieser harten Welt. Du gehst nicht auf die Gasse, Kiffst und bringst dich mit Drogen um. Das ist eine Art des Lebens aber das ist nicht die Gesellschaft taugliche. Das Ziel war sie nach Möglichkeit in die Gesellschaft hereinzubringen.
@@ -179,13 +162,10 @@ Ganz viel konnte ich beobachten, sehr viel Schönes auch weniger Schönes. Es wa
  Die Erfahrung gemacht zu haben. Ich bin um diese Erfahrung reicher geworden.
 
 **Was hat dich bewegt?**
-Es gab extrem viele wunderbare Momente. Aber vielleicht eben dieses Beispiel von dem 25-Jährigen, der mit seiner Freundin durch die Bahnhofhalle schlendert, das war sehr rewording.
+Also was mich am meisten bewegt habt ist der Reichtum an Erfahrungen, die ich machen durfte. Es gab extrem viele wunderbare Momente. Aber vielleicht dieses Beispiel von dem 25-Jährigen, der mit seiner Freundin durch die Bahnhofhalle schlendert, das war sehr rewording.
 
 **Was hast du gelernt, was hast du in dein persönliches Leben mitgenommen?**
 Gelernt habe ich dranbleiben, dranbleiben, dranbleiben. Pip egal was abgeht, zielgerichtet dranbleiben. 
-
-**Wie hat diese Reise dich bewegt in deinem Alltag?**
-Also was mich am meisten bewegt habt ist der Reichtum an Erfahrungen, die ich machen durfte.
 
 **Gibt es eine Botschaft die du auf deinem Weg mitgenommen hast, die du mitteilen möchtest?**
 Diese Reise war ein Erlebnis für mich, welches zeigt dass das Leben reich, 
@@ -193,9 +173,6 @@ viel fältig, wunderbar und herausfordernd ist. Und dass das, was ausserhalb von
 Und wir tun gut daran, das was ausserhalb von Nullachtfünfzehn ist, zu versuchen zu verstehen. Vielleicht verstehen wir es nicht, das macht nichts, aber immerhin es hat seinen Sinn.
 **Also das was aus dem Normen ist kennenzulernen?**\
 Ja, weil vielleicht steckt in dem was drin, was wir in der Norm, sehr gut gebrauchen können.
-
-**\-Du lebst hier gerade beim See, Schätzt du das Wasser?**
-Ich habe immer gesagt, ich bleibe im Bümpliz, es sei denn ich kann ans Wasser ziehen. Und da bin ich jetzt.
 
 **Wenn du nach draussen schaust und die Schiffe siehst, denkst du an deine Erlebnisse auf dem Meer?**
 Wen ich die Schiffe auf dem See sehe, erinnere ich mich wie die Cru das Schiff übers Wasser steuert. Die Schiffe interessieren mich nach wie vor und ich geniesse dass das Wasser mich weiterhin durch den Alltag begleitet, den ich liebte schon immer das Meer.
