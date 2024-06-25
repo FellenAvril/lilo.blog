@@ -86,8 +86,8 @@ Segel setzen, Segel runternehmen, Segel in andere Richtung setzen, kochen, wasch
 
 \***\-Was hast du wen du an Bord warst und in die ferne geschaut hast gesehen und wie war die Atmosphäre für dich?*** 
 Also das Meer hat mich durchgetragen, es hat mich durch die harten Momente begleitet, diese reise brauchte viel kraft und enerie, es war hart. Die Jugendlichen, nicht freundschaftlich waren, sind sehr anspruchsfoll. Mann musst ständig aufmerkasm sein. was machen sie wieder, wie geht’s, wer schlägt wenn zusammen, weil irgendetwas jenem nicht gepasst hat.
-Aber das Meer hat mich durchgetragen. Wir sahen zum Beispiel mal eine Schildkröte weit draussen im Meer, um einem herum einfach Meer und noch mehr Meer. Wie wir uns Spanien Portugal wieder nährten, kam ein Schmetterling, draussen auf dem Meer ein Schmetterling. Ich kann vermuten ein Wind hat ihn dorthin mitgenommen.
-Als wir dan wieder im Mittelmehr wahren sahen wir Wale, auch als wir denn Atlantik runtersegelten. Das eine Jugendliche Mädchen war neben dem Kartenhaus bei der Reiling und ruft auf einmal „ein Wahl“ er ist neben dem Schiff geschwommen und aufgetaucht. 
+Aber das Meer war das schöne. Wir sahen zum Beispiel mal eine Schildkröte weit draussen im Meer, um einem herum einfach Meer und noch mehr Meer. Wie wir uns Spanien wieder nährten, kam uns ein Schmetterling entgegen, draussen auf dem Meer. Ich vermute ein Wind hat ihn dorthin mitgenommen.
+Als wir dann wieder im Mittelmeer waren sahen wir Wale, auch als wir denn Atlantik runtersegelten. Das eine jugendliche Mädchen war neben dem Kartenhaus bei der Reiling und ruft auf einmal „ein Wal“ Er ist neben dem Schiff geschwommen und aufgetaucht. 
 
 \***\-Wie war ein Tages Ablauf auf dem Schiff?***
 Auf dem Schiff musste alles zu jeder Zeit überwacht werden.
