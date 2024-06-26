@@ -98,21 +98,21 @@ Die Schichten waren jeweils vier Stunden. In diesen Stunden, war jeweils diese P
 Ja, denn die hatten gemerkt sie können mich nicht kaufen. Was ich sage gilt, Punkt. Im Gegensatz zu der Zahlmeisterin die beim drogenkonsum erwischt wurde, konnten die Jugendlichen mit mir nicht machen was sie wollten. *
 
 **\-Wie konntest du denn Jugendlichen helfen?**
-Indem dass ich authentisch, gerecht, nett und mit Zuwendung, aber nicht Zuwendung die du dann um den Finger wickeln kannst, gegenüber trat. 
+Indem dass ich authentisch, gerecht, nett und mit Zuwendung, aber nicht Zuwendung die du dann um den Finger wickeln kannst, gegenüber trat.*
 
 \***\-Was hat die Jugendliche belastet, was waren die Herausforderungen für sie?***
-Also die Herausforderungen waren ganz klar aktiv am Segeln mitzumachen. Ihre Aufgaben klar, gut, zuverlässig und vor allem gründlich auszuführen.
+Also die Herausforderungen waren ganz klar aktiv am Segeln mitzumachen. Ihre Aufgaben klar, gut, zuverlässig und vor allem gründlich auszuführen.*
 ***Haben sie dass was sie belastet, ausgedrückt?***
-Ja das kam dann in nicht nur in Worten, weisst du im netten Sätzen zum Ausdruck, das kommt dann mit Wucht zum Ausdruck. Die aktuellen Situationen lösten bei ihnen etwas aus, hinzu kam noch die Belastung aus ihrer Vergangenheit.
+Ja das kam dann in nicht nur in Worten oder in netten Sätzen zum Ausdruck, das kommt dann mit Wucht zum Ausdruck. Die aktuellen Situationen lösten bei ihnen etwas aus, hinzu kam noch die Belastung aus ihrer Vergangenheit.*
 
 **\-Wie wurden die Jugendlichen und die Leute kontrolliert, wie wurde der Konsum von Drogen überwacht?** \
-Wir versuchten sie vom Drogen Konsum wegzuhalten, das war die Voraussetzung. In Seuta, das ist nur ein Beispiel, kannten die Afrikaner die Tectona, die wussten dass ist das Drogenschiff. Die kamen mit Drogen am den Hafen, an dem das Schiff angelegt war und wollten den Jugendlichen Drogen verkaufen. Wir schlugen mit den langen Paddeln umher, damit sie weggingen. Es war immer eine Challenge. Wir mussten wirklich wie ,,Häftlimacher“ Ohren und alle Sinne offenhalten, um zu verhindern, dass die Jugendlichen zu Drogen gelangen und das ist uns nicht immer gelungen. 
+Wir versuchten sie vom Drogen Konsum wegzuhalten, das war die Voraussetzung. In Seuta, das ist nur ein Beispiel, kannten die Afrikaner die Tectona, die wussten dass ist das Drogenschiff. Die kamen mit Drogen am den Hafen, an dem das Schiff angelegt war und wollten den Jugendlichen Drogen verkaufen. Wir schlugen mit den langen Paddeln umher, damit sie weggingen. Es war immer eine Challenge. Wir mussten wirklich wie *„*Häftlimacher“ Ohren und alle Sinne offenhalten, um zu verhindern, dass die Jugendlichen zu Drogen gelangen und das ist uns nicht immer gelungen.* §
 
 **Was hat dich am meisten herausgefordert?**
 Wahrscheinlich der Verantwortung gerecht zu werden.
 
 **\-Wie hast du dich wehrend diese Reise gefühlt, was ist dir durch den Kopf gegangen?**
-Ich war sehr angestrengt, also wirklich nicht entspannt. die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesundheit ausgewirkt.
+Ich war sehr angestrengt, also wirklich nicht entspannt. Die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesunheit ausgewürkt. 
 
 **\-Hat dich das Erlebnis bereichert?** \
 Ja. 
