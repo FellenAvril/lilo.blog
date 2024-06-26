@@ -90,8 +90,8 @@ Sie hatten die Gelegenheit zu lernen, wie sich das Leben abspielt, Verantwortung
 
 **Gab es Fortschritte die du an Board miterlebt hast?**
 
-Ein Fortschritt für die Spanierin war, als wir in den südlichen Gewässern fuhren und Fliegendefische beobachteten, wie sie hoch übers Deck flogen. Dies war ein kemplet neues Erreignis für sie.\
-Ein weiteres Beinspiel war das Jüngelchen, der das Fischen liebte. Er warf hinten am Heck seine Rute raus und fischte Tag für Tag für Tag appetitliche Feste raus.*
+Ein Fortschritt für die Spanierin war, als wir in den südlichen Gewässern fuhren und Fliegendefische beobachteten, wie sie hoch übers Deck flogen. Dies war ein komplet neues Erreignis für sie.\
+Ein weiteres Beinspiel war das Jüngelchen, der das Fischen liebte. Er warf hinten am Heck seine Rute raus und fischte Tag für Tag, appetitliche Feste raus.*
 
 \***\-Was habt ihr alles für Aktivitäten an Bord gemacht?***
 
@@ -99,7 +99,7 @@ Segel setzen, Segel runternehmen, Segel in andere Richtung setzen, kochen, wasch
 
 \***\-Was hast du wen du an Bord warst und in die ferne geschaut hast gesehen und wie war die Atmosphäre für dich?*** 
 
-Also das Meer hat mich durchgetragen, es hat mich durch die harten Momente begleitet, diese reise brauchte viel kraft und enerie, es war hart. Die Jugendlichen, nicht freundschaftlich waren, sind sehr anspruchsfoll. Mann musst ständig aufmerkasm sein. was machen sie wieder, wie geht’s, wer schlägt wenn zusammen, weil irgendetwas jenem nicht gepasst hat.
+Also das Meer hat mich durchgetragen, es hat mich durch die harten Momente begleitet, diese reise brauchte viel Kraft und Energie, es war hart. Die Jugendlichen, die nicht freundschaftlich waren, sind sehr anspruchsfoll. Mann musst ständig aufmerkasm sein. was machen sie wieder, wie geht’s, wer schlägt wenn zusammen, weil irgendetwas jenem nicht gepasst hat.
 Aber das Meer war das schöne. Wir sahen zum Beispiel mal eine Schildkröte weit draussen im Meer, um einem herum einfach Meer und noch mehr Meer. Wie wir uns Spanien wieder nährten, kam uns ein Schmetterling entgegen, draussen auf dem Meer. Ich vermute ein Wind hat ihn dorthin mitgenommen.
 Als wir dann wieder im Mittelmeer waren sahen wir Wale, auch als wir denn Atlantik runtersegelten. Das eine jugendliche Mädchen war neben dem Kartenhaus bei der Reeling und ruft auf einmal ,,ein Wal‘‘ Er ist neben dem Schiff geschwommen und aufgetaucht. %
 
@@ -151,7 +151,7 @@ Also davon geh ich stark aus. Für mich, wenn es ein Jugendlicher ist von unsere
 
 **Wie gab diese Reise den Jugendlichen eine Möglichkeit auf einen Neuanfang?**
 
-Das hing von dem einzelnen Jugendlichen ab, was er in dieser Zeit lernen wollte, und da gab es unsäglich viele Möglichkeiten. Ich mag mich an eine Aussage erinnern, sie lautete dahingehend ,,Wow das ist so wertvoll, ich habe so viel gelernt, ich bin sehr dankbar und glücklich dass ich dabei bin.‘‘ Als ich dann anschliessend diese Stelle am Zürichsee hatte und durch den Bahnhof Zürich ging, da sah ich diesen Jugendlichen, der diese Aussage gemacht hatte. Er schlenderte durch die Bahnhofhalle, mit seiner Freundin im Arm. Der hats gepackt, das war ein wunderschönes Zeichen. Da war mir klar, dass wen es eines der Jugendlicher ist, ein Jugendlicher der es schafft, das sich der Aufwand der Schiffreise gelohnt hat.
+Das hing von dem einzelnen Jugendlichen ab, was er in dieser Zeit lernen wollte, und da gab es unzählig viele Möglichkeiten. Ich mag mich an eine Aussage erinnern, sie lautete dahingehend ,,Wow das ist so wertvoll, ich habe so viel gelernt, ich bin sehr dankbar und glücklich dass ich dabei bin.‘‘ Als ich dann anschliessend diese Stelle am Zürichsee hatte und durch den Bahnhof Zürich ging, da sah ich diesen Jugendlichen, der diese Aussage gemacht hatte. Er schlenderte durch die Bahnhofhalle, mit seiner Freundin im Arm. Der hats gepackt, das war ein wunderschönes Zeichen. Da war mir klar, dass wen es eines der Jugendlicher ist, ein Jugendlicher der es schafft, das sich der Aufwand der Schiffreise gelohnt hat.
 
 **\-Was konntest du wärend deiner Reise beobachten?**
 
