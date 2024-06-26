@@ -1,5 +1,5 @@
 +++
-title = "Poetry Slam"
+title = "Lass die Friedenstaube fliegen"
 date = "2024-06-05"
 draft = false
 pinned = false
@@ -7,8 +7,6 @@ tags = ["Poetry-Slam", "Friedenstaube"]
 image = "img_0087.jpeg"
 description = "\n"
 +++
-# ***Lass die Friedenstaube fliegen*** 
-
 ![](img_0087.jpeg)
 
 Lass die Friedenstaube fliegen.  
