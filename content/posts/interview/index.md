@@ -78,7 +78,7 @@ Das erste Beispiel passierte in der Mulin, wo wir denn Auftrag Teamfindung hatte
 
 ***\-Wie wurde das Vertrauen dann aufgebaut untereinander?***
 
-Es gab immer wieder andere Seilschaften, sowohl unter den Jugendlichen wie unter den Erwachsenen. Die Zahlmeisterin wurde von den Jugendlichen erwischt beim Drogenkonsum auf dem Schiff. Wie wir gegen die Kapverden kamen, spürten wir, dass es eine schwierige Situation gab. Die Jugendlichen wollten uns noch weniger gehorchen, wenn wir etwas von ihnen forderten. Und dann kamen wir den Kapverden näher und eines Tages kommt der Skipper zu mir und sagt mir, dass eine der Jugendlichen Mädchen ihm erzählt hat, dass die Jugendlichen die Zahlmeisterin beobachtet haben, wie sie Drogen konsumiert. Und da war klar, die Jugendlichen hatten die Zahlmeisterin in der Hand, die mussten dem Skipper und mir nicht gehorchen. Auf Mindelo erfuhren wir dies und ich beschloss, solange die an Board ist, bewegen wir das Schiff nicht mehr. Weil unsere Autorität war untergraben. Sie musste dann gehen und wir sassen einen Monat auf Mindelo. Bis wir Nachschub an Erwachsenen erhielten. Es musste ein Zahlmeister/in gefunden werden. Weil Zürich die Zahlmeistersin fristlos entliessen. %
+Es gab immer wieder andere Seilschaften, sowohl unter den Jugendlichen wie unter den Erwachsenen. Die Zahlmeisterin wurde von den Jugendlichen erwischt beim Drogenkonsum auf dem Schiff. Wie wir gegen die Kapverden kamen, spürten wir, dass es eine schwierige Situation gab. Die Jugendlichen wollten uns noch weniger gehorchen, wenn wir etwas von ihnen forderten. Und dann kamen wir den Kapverden näher und eines Tages kommt der Skipper zu mir und sagt mir, dass eine der Jugendlichen Mädchen ihm erzählt hat, dass die Jugendlichen die Zahlmeisterin beobachtet haben, wie sie Drogen konsumiert. Und da war klar, die Jugendlichen hatten die Zahlmeisterin in der Hand, die mussten dem Skipper und mir nicht gehorchen. Auf Mindelo erfuhren wir dies und ich beschloss, solange die an Board ist, bewegen wir das Schiff nicht mehr. Weil unsere Autorität war untergraben. Sie musste dann gehen und wir sassen einen Monat auf Mindelo. Bis wir Nachschub an Erwachsenen erhielten. Es musste ein Zahlmeister/in gefunden werden. Weil Zürich die Zahlmeisterin fristlos entliessen. %
 
 **Haben sie daraus gelernt, das sie als Konsequenz ihrer Handlungen gehen musste?** 
 
@@ -86,7 +86,7 @@ Ja, du wirst erwischt und dann fertig. Dass war eine Möglichkeit daraus zu lern
 
 \***\-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
 
-Sie hatten die Gelegenheit zu lernen, wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässigkeit zu sein, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen, wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und ,*,s*ünele.‘‘%
+Sie hatten die Gelegenheit zu lernen, wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässig zu sein, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen, wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und ,*,s*ünele.‘‘%
 
 **Gab es Fortschritte die du an Board miterlebt hast?**
 
