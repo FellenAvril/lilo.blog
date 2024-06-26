@@ -86,7 +86,7 @@ Ja, du wirst erwischt und dann fertig. Dass war eine Möglichkeit daraus zu lern
 
 \***\-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
 
-Sie hatten die Gelegenheit zu lernen, wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässig zu sein, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen, wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und ,*,s*ünele.‘‘%
+Sie hatten die Gelegenheit zu lernen, wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässig zu sein, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen, wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht Kraft, da kannst du nicht einfach zurücklehnen und ,*,s*ünele.‘‘%
 
 **Gab es Fortschritte die du an Board miterlebt hast?**
 
