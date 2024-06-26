@@ -8,8 +8,8 @@ image = "img_0028.jpeg"
 description = ""
 +++
 > ***Befragte Person:*** 
-> Thérèse Zöller (Pseudonym, auf Wunsch der Befragten Person wurde der Name geändert) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
-> Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei. \
+> Thérèse Zöller (Pseudonym, auf Wunsch der Befragten Person wurde der Name geändert) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Sie hat, mit ihren drei Söhnen, ein Segelpadent für auf offene See absolviert.\
+> Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Drogenabhängige dabei. \
 > In diesem Interview erzählt sie von ihrer Reise auf der Tectona im Jahr 1994. Auf dieser Reise kommen sie weg von den Drogen und segeln in einen neuen Lebensabschnitt hinein, es gilt als Form einer Therapie für Ex-Drogenabhängige Jugendlichen.
 
 ***\-Wie ich gehört habe, nennt man dich ,,alter Seebär‘‘ wieso beschreibt man dich so?***
