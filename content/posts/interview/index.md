@@ -46,7 +46,7 @@ Die Pädagogische Leitung, die verantwortlich ist für alles, was mit den Jugend
 ***\-Was für Aufgaben habt ihr gemacht damit ihr euch besser kennenlernt?*** 
 Es ist die Aufgabe der Erwachsenen, dafür zu sorgen dass diese Team Findung stattfinden konnte, so dass man sich kennenlernte. 
 Wir haben den Alltag, den ganz einfachen Alltag erlebt. Es ist von grosser Wichtigkeit, dass man sich gegenseitig kennenlernt, Schwächen und Stärken. Wenn du dann auf dem Schiff bist, ist es gut und hilfreich, wenn du eine Ahnung hast, wie der andere tickt.
-Und das waren ja alles Jugendliche nach dem Drogenentzug und, wenn du einen Drogenentzug machst, dann bist du noch weit entfernt von clean. Wir hatten dort 7 Flöhe, die alles daran setzten uns hinters Licht zu führen, um wieder an Drogen zu kommen. Das war unsere Aufgabe: zu schauen, dass die Drogen draussen bleiben. Das ist uns nicht ganz gelungen, darum spreche ich von Flöhen. %
+Und das waren ja alles Jugendliche nach dem Drogenentzug und, wenn du einen Drogenentzug machst, dann bist du noch weit entfernt von clean. Wir hatten dort sieben Flöhe, die alles daran setzten uns hinters Licht zu führen, um wieder an Drogen zu kommen. Das war unsere Aufgabe: zu schauen, dass die Drogen draussen bleiben. Das ist uns nicht ganz gelungen, darum spreche ich von Flöhen. %
 
 ***\-Wie war das Team, wie hast du es erlebt im Team?***
 Die Team Zusammensetzung war phänomenal, ganz perfekt durchmischt. Es sind vier Erwachsene Begleiter und sieben Jugendliche, zwei Frauen fünf Männer. %
