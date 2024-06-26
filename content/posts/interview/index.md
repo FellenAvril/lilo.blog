@@ -13,6 +13,8 @@ description = ""
 > Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Drogenabhängige dabei. \
 > In diesem Interview erzählt sie von ihrer Reise auf der Tectona im Jahr 1994. Auf dieser Reise kommen sie weg von den Drogen und segeln in einen neuen Lebensabschnitt hinein, es gilt als Form einer Therapie für Ex-Drogenabhängige Jugendlichen.
 
+
+
 ***Wie ich gehört habe, nennt man dich ,,alter Seebär‘‘ wieso beschreibt man dich so?***
 
 Ich gehe davon aus, dass dieser Titel ,,Alter Seebär‘’ daher rührt, weil ich sehr begeistert war mit all den Dingen, die während dieser Reise geschahen. 
