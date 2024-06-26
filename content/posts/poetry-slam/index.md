@@ -7,7 +7,7 @@ tags = ["Poetry-Slam", "Friedenstaube"]
 image = "img_0087.jpeg"
 description = "\n"
 +++
-![](img_0087.jpeg)
+![Friedenstaube ,,fly away’’](img_0087.jpeg "Friedenstaube ,,fly away’’")
 
 Lass die Friedenstaube fliegen.  
 
