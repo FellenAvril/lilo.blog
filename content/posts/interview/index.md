@@ -7,8 +7,6 @@ tags = ["Interview", "Segeltour", "Drogenabhängige"]
 image = "img_0028.jpeg"
 description = ""
 +++
-
-
 ![Segelschiff Tectona ](screenshot-183.jpg-1-.png "Segelschiff Tectona ")
 
 > Thérèse Zöller (Pseudonym, auf Wunsch der Befragten Person wurde der Name geändert) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Sie hat, mit ihren drei Söhnen, ein Segelpadent für auf offene See absolviert.\
@@ -176,6 +174,10 @@ Gelernt habe ich immer dranzubleiben. Ganz egal was abgeht, zielgerichtet dranbl
 
 Diese Reise war ein Erlebnis für mich, welches zeigt dass das Leben reich, viel fältig, wunderbar und herausfordernd ist. Und dass das, was ausserhalb von Nullachtfünfzehn ist, mindestens ebenso wertvoll ist. 
 Und wir tun gut daran, das was ausserhalb von Nullachtfünfzehn ist, zu versuchen zu verstehen. Vielleicht verstehen wir es nicht, das macht nichts, aber immerhin es hat seinen Sinn. Denn vielleicht steckt in dem was drin, was wir in der Norm, sehr gut gebrauchen können.
+
+> ‘’Ausserhalb der Norm liegt etwas von enormer Wichtigkeit, auch für die in der Norm.’’
+
+
 
 **Wenn du nach draussen schaust und die Schiffe siehst, denkst du an deine Erlebnisse auf dem Meer?**
 
