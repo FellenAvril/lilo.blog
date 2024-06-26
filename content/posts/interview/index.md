@@ -251,4 +251,6 @@ Und wir tun gut daran, das was ausserhalb von Nullachtfünfzehn ist, zu versuche
 
 Wen ich die Schiffe auf dem See sehe, erinnere ich mich wie die Cru das Schiff übers Wasser steuert. Die Schiffe interessieren mich nach wie vor und ich geniesse dass das Wasser mich weiterhin durch den Alltag begleitet, den ich liebte schon immer das Meer.
 
+
+
 **Ende**
