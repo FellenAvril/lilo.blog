@@ -1,5 +1,5 @@
 +++
-title = "Die Segeltour für Drogenabhängige im Enzug"
+title = "Die Segeltour für Drogenabhängige im Entzug "
 date = "2024-03-15"
 draft = false
 pinned = false
