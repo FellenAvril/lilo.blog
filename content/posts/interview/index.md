@@ -13,10 +13,12 @@ description = ""
 > In diesem Interview erzählt sie von ihrer Reise auf der Tectona im Jahr 1994. Auf dieser Reise kommen sie weg von den Drogen und segeln in einen neuen Lebensabschnitt hinein, es gilt als Form einer Therapie für Ex-Drogenabhängige Jugendlichen.
 
 ***\-Wie ich gehört habe, nennt man dich ,,alter Seebär‘‘ wieso beschreibt man dich so?***
+
 Ich gehe davon aus, dass dieser Titel ,,Alter Seebär‘’ daher rührt, weil ich sehr begeistert war mit all den Dingen, die während dieser Reise geschahen. 
 Es ging darum, dass die Arbeit auf dem Schiff Präzision und Aktivität erforderte. Man muss anpacken, im heir und jetzt. Also es geht nicht, dass man ,,laueret‘‘, wie wir sagen, wenn die Fahrt erfolgreich sein soll. Das macht ein alter Seebär aus. %
 
 ***\-Woher kommt deine Leidenschaft für das Meer und das Segeln?*** 
+
 Das Meer war immer ein Anziehungspunkt für mich. Ich habe mit meinen drei Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See-Ausweis, also See- gleich Meer-Ausweis. Und wie ich den hatte, meldete ich mich bei der ,,Plus Schweizer Jung zur See‘‘, mit der Bitte, sie sollen mich auf so einen Törn als Mitarbeiterin schicken. % 
 
 ***\-Was war das für eine Schifffahrt auf der du dabei warst?*** 
