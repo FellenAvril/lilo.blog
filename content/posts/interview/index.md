@@ -1,5 +1,5 @@
 +++
-title = "Interview"
+title = "Die Segeltour als Therapie für Exdrogenabhängige"
 date = "2024-03-15"
 draft = false
 pinned = false
@@ -7,13 +7,9 @@ tags = ["Interview", "Segeltour", "Drogenabhängige"]
 image = "img_0028.jpeg"
 description = ""
 +++
-# ***Weg von den Drogen*** ***in einen neuen Lebensabschnitt segeln***
-
-## *Die Segeltour als Therapie für Exdrogenabhängige*
-
 > ***Befragte Person:*** 
 > Thérèse Zöller (Pseudonym, auf Wunsch der Befragten Person wurde der Name geändert) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
-> Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei. In diesem Interview erzählt sie von ihrer Reise auf der Tectona im Jahr 1994.
+> Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei. In diesem Interview erzählt sie von ihrer Reise auf der Tectona im Jahr 1994. Auf dieser Reise kommen sie weg von *den Drogen und segeln* *in einen neuen Lebensabschnitt hinein.*
 
 ***\-Wie ich gehört habe, nennt man dich ,,alter Seebär‘‘ wieso beschreibt man dich so?***
 Ich gehe davon aus, dass dieser Titel ,,Alter Seebär‘’ daher rührt, weil ich sehr begeistert war mit all den Dingen, die wärend dieser Reise geschahen. 
