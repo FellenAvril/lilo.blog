@@ -111,8 +111,8 @@ Wir versuchten sie vom Drogen Konsum wegzuhalten, das war die Voraussetzung. In 
 **Was hat dich am meisten herausgefordert?**
 Wahrscheinlich der Verantwortung gerecht zu werden.
 
-**\-Wie hast du dich wehrend diese Reise gefühlt, was ist dir durch den Kopf gegangen?**
-Ich war sehr angestrengt, also wirklich nicht entspannt. Die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesundheit ausgewürkt.
+**\-Wie hast du dich während dieser Reise gefühlt?**
+Ich war sehr angestrengt, die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesundheit ausgewirkt.
 
 **\-Wie hat diese Fahrt den Passagieren geholfen und was war das Ziel an dieser Fahrt?**
 Das Ziel war die Jugendlichen in das hier und jetzt zu bringen, in die Realität dieser harten Welt. Du gehst nicht auf die Gasse, Kiffst und bringst dich mit Drogen um. Das ist eine Art des Lebens, aber das ist nicht die Gesellschaft taugliche. Das Ziel war sie nach Möglichkeit in die Gesellschaft hereinzubringen.
