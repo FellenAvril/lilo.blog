@@ -142,6 +142,10 @@ Ich war sehr angestrengt, die ganze Zeit nicht entspannt. Das hat sich dann auch
 
 Das Ziel war die Jugendlichen in das hier und jetzt zu bringen, in die Realität dieser harten Welt. Du gehst nicht auf die Gasse, Kiffst und bringst dich mit Drogen um. Das ist eine Art des Lebens, aber das ist nicht die Gesellschaft taugliche. Das Ziel war sie nach Möglichkeit in die Gesellschaft hereinzubringen.
 
+> “Die Jugendlichen müssen der Versuchung meiden wieder in die alten Muster zu fallen.
+
+
+
 **Würdest du es Jugendlichen weiterempfehlen?** 
 
 Immer. 
@@ -155,8 +159,6 @@ Also davon geh ich stark aus. Für mich, wenn es ein Jugendlicher ist von unsere
 Das hing von dem einzelnen Jugendlichen ab, was er in dieser Zeit lernen wollte, und da gab es unzählig viele Möglichkeiten. Ich mag mich an eine Aussage erinnern, sie lautete dahingehend ,,Wow das ist so wertvoll, ich habe so viel gelernt, ich bin sehr dankbar und glücklich dass ich dabei bin.‘‘ Als ich dann anschliessend diese Stelle am Zürichsee hatte und durch den Bahnhof Zürich ging, da sah ich diesen Jugendlichen, der diese Aussage gemacht hatte. Er schlenderte durch die Bahnhofhalle, mit seiner Freundin im Arm. Der hats gepackt, das war ein wunderschönes Zeichen. Da war mir klar, dass wen es eines der Jugendlichen ist, ein Jugendlicher der es schafft, das sich der Aufwand der Schiffreise gelohnt hat.
 
 > ”Wen es auch nur ein Jugendlicher ist, der es schafft die Drogen hinter sich zu lassen und in ein neuen Lebensabschnitt zu segeln, lohnt sich die Segeltour”
-
-
 
 **\-Was konntest du wärend deiner Reise beobachten?**
 
