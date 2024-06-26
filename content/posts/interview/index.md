@@ -154,6 +154,10 @@ Also davon geh ich stark aus. Für mich, wenn es ein Jugendlicher ist von unsere
 
 Das hing von dem einzelnen Jugendlichen ab, was er in dieser Zeit lernen wollte, und da gab es unzählig viele Möglichkeiten. Ich mag mich an eine Aussage erinnern, sie lautete dahingehend ,,Wow das ist so wertvoll, ich habe so viel gelernt, ich bin sehr dankbar und glücklich dass ich dabei bin.‘‘ Als ich dann anschliessend diese Stelle am Zürichsee hatte und durch den Bahnhof Zürich ging, da sah ich diesen Jugendlichen, der diese Aussage gemacht hatte. Er schlenderte durch die Bahnhofhalle, mit seiner Freundin im Arm. Der hats gepackt, das war ein wunderschönes Zeichen. Da war mir klar, dass wen es eines der Jugendlichen ist, ein Jugendlicher der es schafft, das sich der Aufwand der Schiffreise gelohnt hat.
 
+> ”Wen es auch nur ein Jugendlicher ist, der es schafft die Drogen hinter sich zu lassen und in ein neuen Lebensabschnitt zu segeln, lohnt sich die Segeltour”
+
+
+
 **\-Was konntest du wärend deiner Reise beobachten?**
 
 Ganz viel konnte ich beobachten, sehr viel Schönes auch weniger Schönes. Es war spannend, extrem spannend. Viel Neues eröffnete sich mir, dass ich mir nie hätte träumen lassen. Es war bereichernd.
@@ -176,8 +180,6 @@ Diese Reise war ein Erlebnis für mich, welches zeigt dass das Leben reich, viel
 Und wir tun gut daran, das was ausserhalb von Nullachtfünfzehn ist, zu versuchen zu verstehen. Vielleicht verstehen wir es nicht, das macht nichts, aber immerhin es hat seinen Sinn. Denn vielleicht steckt in dem was drin, was wir in der Norm, sehr gut gebrauchen können.
 
 > ‘’Ausserhalb der Norm liegt etwas von enormer Wichtigkeit, auch für die in der Norm.’’
-
-
 
 **Wenn du nach draussen schaust und die Schiffe siehst, denkst du an deine Erlebnisse auf dem Meer?**
 
