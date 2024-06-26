@@ -60,8 +60,9 @@ Die Team Zusammensetzung war phänomenal, ganz perfekt durchmischt. Es sind vier
 
 ***\-Wie wurden die drogenabhängige Passagieren ausgewählt?***
 
-,,Plus Schweizer Jugend zur See‘‘, war eines der Segelangebote in der Schweiz, das mit Jugendlichen nach dem Drogenentzug eine Segeltörn fuhr. Das war eine Form von Therapie, eine harte Form der Therapie. Sozialdienste oder andere Institutionen wusten von Jugendlichen bei denen nach dem Drogenentzug eine Therapie angeschlossen werden sollte. Weil wenn du aus dem Drogenentzug kommst, hast du das reißen. Da muss man eine Therapie machen, in welcher man eingebunden ist. Eine anschließende Therapie ist wichtig. Wir hatten Zulieferer von Jugendanwaltschaften, die während Jahren mit diesen Jugendlichen zu tun hatten und immer wieder Rückfall um Rückfall erlebt hatten. Es waren dann auch die Sozialdienste oder die Institutionen, die sich mit solchen Jugendlichen Beschäftigten, die beschlossen, dass eine solche Therapie angezeigt ist. Und klar brauchte es die Einwilligung der Jugendlichen, dieses Angebot überhaupt anzunehmen. Man musste denen erzählen, um was es geht, dass das nicht einfach ,,Schoko schlecken‘’ sein wird, dass sie herausgefordert werden. Bei den Jugendanwaltschaften war manchmal schon ein wenig Druck dahinter, ,,entweder du gehst aufs Schiff oder du gehst in den Knast‘‘.
-Wieso in den Knast? Wenn sie wieder auf die Straße gingen, dielten und erwischt wurden, also illegale Handlungen erneut machten. Also bis ein Jugendlicher bei der Jugendanwaltschaft anlangt, braucht es sehr viel. Darum war die Jugendanwaltschaft schon etwas streng. %
+,,Plus Schweizer Jugend zur See‘‘, war eines der Segelangebote in der Schweiz, das mit Jugendlichen nach dem Drogenentzug eine Segeltörn fuhr. Das war eine Form von Therapie, eine harte Form der Therapie. Sozialdienste oder andere Institutionen wusten von Jugendlichen bei denen nach dem Drogenentzug eine Therapie angeschlossen werden sollte. Weil wenn du aus dem Drogenentzug kommst, hast du das reißen. Da muss man eine Therapie machen, in welcher man eingebunden ist. Eine anschließende Therapie ist wichtig. Wir hatten Zulieferer von Jugendanwaltschaften, die während Jahren mit diesen Jugendlichen zu tun hatten und immer wieder Rückfall um Rückfall erlebt hatten. Es waren dann auch die Sozialdienste oder die Institutionen, die sich mit solchen Jugendlichen Beschäftigten, die beschlossen, dass eine solche Therapie angezeigt ist. Und klar brauchte es die Einwilligung der Jugendlichen, dieses Angebot überhaupt anzunehmen. Man musste denen erzählen, um was es geht, dass das nicht einfach ,,Schoko schlecken‘’ sein wird, dass sie herausgefordert werden. Bei den Jugendanwaltschaften war manchmal schon ein wenig Druck dahinter, ,,entweder du gehst aufs Schiff oder du gehst in den Knast‘‘. \
+**Wieso in den Knast?**
+Wenn sie wieder auf die Straße gingen, dielten und erwischt wurden, also illegale Handlungen erneut machten. Also bis ein Jugendlicher bei der Jugendanwaltschaft anlangt, braucht es sehr viel. Darum war die Jugendanwaltschaft schon etwas streng. %
 
 ***\-In welchem Alter waren diese Jugentliche?*** 
 
@@ -108,7 +109,7 @@ Auf dem Schiff musste alles zu jeder Zeit überwacht werden.
 Die 24 Tages und Nachtstunden wurden zwischen uns Leitern in Schichten aufgeteilt.
 Die Schichten waren jeweils vier Stunden. In diesen Stunden, war jeweils diese Person verantwortlich für das Gesamthafte. Während meiner Wache ging die Sonne unter, da konnte ich den Sonnenuntergang bewundern und kam die Sonne am anderen Tag wieder rauf, da konnte ich den Sonnenaufgang bewundern. Das war einfach himmlisch, also das hat mich entschädigt für vieles was da auf dem Schiff schiefging.*
 
-***\-Haben die Jgendliche dich respektiert?***
+***\-Haben die Jugendliche dich respektiert?***
 
 Ja, denn die hatten gemerkt sie können mich nicht kaufen. Was ich sage gilt, Punkt. Im Gegensatz zu der Zahlmeisterin die beim drogenkonsum erwischt wurde, konnten die Jugendlichen mit mir nicht machen was sie wollten. *
 
