@@ -70,19 +70,19 @@ Das erste Beispiel passierte in der Mulin, wo wir denn Auftrag Teamfindung hatte
 Es gab immer wieder andere Seilschaften, sowohl unter den Jugendlichen wie unter den Erwachsenen. Die Zahlmeisterin wurde von den Jugendlichen erwischt beim Drogenkonsum auf dem Schiff. Wie wir gegen die Kapverden kamen, spürten wir, dass es eine schwierige Situation gab. Die Jugendlichen wollten uns noch weniger gehorchen, wenn wir etwas von ihnen forderten. Und dann kamen wir den Kapverden näher und eines Tages kommt der Skipper zu mir und sagt mir, dass eine der Jugendlichen Mädchen ihm erzählt hat, dass die Jugendlichen die Zahlmeisterin beobachtet haben, wie sie Drogen konsumiert. Und da war klar, die Jugendlichen hatten die Zahlmeisterin in der Hand, die mussten dem Skipper und mir nicht gehorchen. Auf Mindelo erfuhren wir dies und ich beschloss, solange die an Board ist, bewegen wir das Schiff nicht mehr. Weil unsere Autorität war untergraben. Sie musste dann gehen und wir sassen einen Monat auf Mindelo. Bis wir Nachschub an Erwachsenen erhielten. Es musste ein Zahlmeister/in gefunden werden. Weil Zürich die Zahlmeistersin fristlos entliessen. %
 
 ***Und dort ging vertrauen verloren, bei den Jugendlichen weil es unter den Erwachsenen missbraucht wurde?*** 
-Also der Kapitän (Skipper) und ich waren jetzt wirklich ein Team, das zusammenhielt und die Jugendlichen hatten jetzt kein Pfand mehr in der Hand.
+Also der Kapitän (Skipper) und ich waren jetzt wirklich ein Team, das zusammenhielt und die Jugendlichen hatten jetzt kein Pfand mehr in der Hand.%
 
 **Haben sie auch daraus gelernt, das sie als konzequenz ihrer Hasndlungen gehen musste?** 
 Ja, du wirst erwischt und dann fertig. Dass war eine Möglichkeit daraus zu lernen, die Folge war das wir einen Monat auf Mindelo festsassen. 
 
 \***\-Was für Auswirkungen und Bereicherung hatte diese Reise für die Drogenabhängigen?***
-Sie hatten die Gelegenheit zu lernen, wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässigkeit zu sein, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen, wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und *„s*ünele”.
+Sie hatten die Gelegenheit zu lernen, wie sich das Leben abspielt, Verantwortung zu übernehmen, Zuverlässigkeit zu sein, Bereitschaft zur Hilfe, aufeinander acht zu geben und einander zu helfen, wenn du in Not bist. Das war eine hervorragende, harte Schule. Braucht da kannst du nicht einfach zurücklehnen und *„s*ünele”.%
 **Gab es Fortschritte die du an Board miterlebt hast?**
 Ein Fortschritt für die Spanierin war, als wir in den südlichen Gewässern fuhren und Fliegendefische beobachteten, wie sie hoch übers Deck flogen. Dies war ein kemplet neues Erreignis für sie.\
-Ein weiteres Beinspiel war das Jüngelchen, der das Fischen liebte. Er warf hinten am Heck seine Rute raus und fischte Tag für Tag für Tag appetitliche Feste raus.
+Ein weiteres Beinspiel war das Jüngelchen, der das Fischen liebte. Er warf hinten am Heck seine Rute raus und fischte Tag für Tag für Tag appetitliche Feste raus.*
 
 \***\-Was habt ihr alles für Aktivitäten an Bord gemacht?***
-Segel setzen, Segel runternehmen, Segel in andere Richtung setzen, kochen, waschen, aufräumen, Kukarachas, ein Ungeziefer jagen, fischen, die Hygiene pflegen. Also wir waren vollauf beschäftigt mit dem ganz einfachen Alltag. 
+Segel setzen, Segel runternehmen, Segel in andere Richtung setzen, kochen, waschen, aufräumen, Kukarachas, ein Ungeziefer jagen, fischen, die Hygiene pflegen. Also wir waren vollauf beschäftigt mit dem ganz einfachen Alltag. %
 
 \***\-Was hast du wen du an Bord warst und in die ferne geschaut hast gesehen und wie war die Atmosphäre für dich?*** 
 Also das Meer hat mich durchgetragen, es hat mich durch die harten Momente begleitet, diese reise brauchte viel kraft und enerie, es war hart. Die Jugendlichen, nicht freundschaftlich waren, sind sehr anspruchsfoll. Mann musst ständig aufmerkasm sein. was machen sie wieder, wie geht’s, wer schlägt wenn zusammen, weil irgendetwas jenem nicht gepasst hat.
@@ -92,23 +92,21 @@ Als wir dann wieder im Mittelmeer waren sahen wir Wale, auch als wir denn Atlant
 \***\-Wie war ein Tages Ablauf auf dem Schiff?***
 Auf dem Schiff musste alles zu jeder Zeit überwacht werden.
 Die 24 Tages und Nachtstunden wurden zwischen uns Leitern in Schichten aufgeteilt.
-Die Schichten waren jeweils 4 Stunden. In diesen Stunden, war jeweils diese Person verantwortlich für das Gesamthafte. Während meiner Wache ging die Sonne unter, da konnte ich den Sonnenuntergang bewundern und kam die Sonne am anderen Tag wieder rauf da konnte ich den Sonnenaufgang bewundern. Das war einfach himmlisch, also das hat mich entschädigt für vieles was da auf dem Schiff schiefging.
+Die Schichten waren jeweils vier Stunden. In diesen Stunden, war jeweils diese Person verantwortlich für das Gesamthafte. Während meiner Wache ging die Sonne unter, da konnte ich den Sonnenuntergang bewundern und kam die Sonne am anderen Tag wieder rauf, da konnte ich den Sonnenaufgang bewundern. Das war einfach himmlisch, also das hat mich entschädigt für vieles was da auf dem Schiff schiefging.*
 
 ***\-Haben die Jgendliche dich respektiert?***
-Ja doch doch, die hatten gemerkt sie können mich nicht kaufen, was ich sage, gilt Punkt. Im Gegensatz zu der Zahlmeisterin, weil sie erwischt wurde, konnten die Jugendlichen mit der machen was sie wollten. 
+Ja, denn die hatten gemerkt sie können mich nicht kaufen. Was ich sage gilt, Punkt. Im Gegensatz zu der Zahlmeisterin die beim drogenkonsum erwischt wurde, konnten die Jugendlichen mit mir nicht machen was sie wollten. *
 
 **\-Wie konntest du denn Jugendlichen helfen?**
-Indem dass ich authentisch, gerecht, nett und mit Zuwendung aber nicht Zuwendung die du dann um den Finger wickeln kannst, gegenüber trat. 
+Indem dass ich authentisch, gerecht, nett und mit Zuwendung, aber nicht Zuwendung die du dann um den Finger wickeln kannst, gegenüber trat. 
 
 \***\-Was hat die Jugendliche belastet, was waren die Herausforderungen für sie?***
-Also die Herausforderungen waren ganz klar aktiv am Segeln mitzumachen. Ihre Aufgaben klar, gut, zuverlässig und vor allem auszuführen.
+Also die Herausforderungen waren ganz klar aktiv am Segeln mitzumachen. Ihre Aufgaben klar, gut, zuverlässig und vor allem gründlich auszuführen.
 ***Haben sie dass was sie belastet, ausgedrückt?***
 Ja das kam dann in nicht nur in Worten, weisst du im netten Sätzen zum Ausdruck, das kommt dann mit Wucht zum Ausdruck. Die aktuellen Situationen lösten bei ihnen etwas aus, hinzu kam noch die Belastung aus ihrer Vergangenheit.
 
 **\-Wie wurden die Jugendlichen und die Leute kontrolliert, wie wurde der Konsum von Drogen überwacht?** \
-Wir versuchten sie vom Drogen Konsum wegzuhalten, also das war die Voraussetzung. In Seuta das ist nur ein Beispiel, die Afrikaner die kannten die Tecktona, die wussten das ist das Drogenschiff. Die kamen mit Drogen am den Hafen wo das Schiff angelegt war. Und wir schlugen mit den langen Paddeln mit denen du das Dingi ruderst, umher damit sie weggingen. 
-Also war das am Hafen ein größeres Problem, dass sie dort vielleicht ein Drogen hätten gelangen können?
- Ja die wollten den Jugendlichen Drogen verkaufen, so wie Kätschgummi. Es war immer eine Challenge. Wir mussten wirklich wie Häftlimacher Ohren und alle Sinne offenhalten, um eben zu verhindern, dass die Jugendlichen zu Drogen gelangen und das ist uns wie gesagt nicht immer gelungen. 
+Wir versuchten sie vom Drogen Konsum wegzuhalten, das war die Voraussetzung. In Seuta, das ist nur ein Beispiel, kannten die Afrikaner die Tectona, die wussten dass ist das Drogenschiff. Die kamen mit Drogen am den Hafen, an dem das Schiff angelegt war und wollten den Jugendlichen Drogen verkaufen. Wir schlugen mit den langen Paddeln umher, damit sie weggingen. Es war immer eine Challenge. Wir mussten wirklich wie ,,Häftlimacher“ Ohren und alle Sinne offenhalten, um zu verhindern, dass die Jugendlichen zu Drogen gelangen und das ist uns nicht immer gelungen. 
 
 **Was hat dich am meisten herausgefordert?**
 Wahrscheinlich der Verantwortung gerecht zu werden.
