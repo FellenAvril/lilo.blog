@@ -112,51 +112,36 @@ Wir versuchten sie vom Drogen Konsum wegzuhalten, das war die Voraussetzung. In 
 Wahrscheinlich der Verantwortung gerecht zu werden.
 
 **\-Wie hast du dich wehrend diese Reise gefühlt, was ist dir durch den Kopf gegangen?**
-Ich war sehr angestrengt, also wirklich nicht entspannt. Die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesunheit ausgewürkt. 
-
-**\-Hat dich das Erlebnis bereichert?** \
-Ja. 
-
-**\-Wie fühltest du dich als du zurückkamst von dieser Reise?**\
-Ich musste mich erholen. Also ich war ausgepumpt.
-
-**\-Würdest du es nochmal machen?** \
-Ja. Also jetzt sowieso nicht mehr ich wäre zu alt, aber damals ja. Ich habe unendlich viele tiefe Erfahrungen gemacht auf breiter Basis. 
-Das ist stark dass du dass auch wenn es schwierig war nochmals durchgezogen hättest. 
-**Gäbe es Sachen die du jetzt anders oder besser machen könntest?** \
-Besser nicht. 
+Ich war sehr angestrengt, also wirklich nicht entspannt. Die ganze Zeit nicht entspannt. Das hat sich dann auch später in der Gesundheit ausgewürkt.
 
 **\-Wie hat diese Fahrt den Passagieren geholfen und was war das Ziel an dieser Fahrt?**
-Das Ziel war die Jugendliche in das hier und jetzt zu bringen, in die Realität dieser harten Welt. Du gehst nicht auf die Gasse, Kiffst und bringst dich mit Drogen um. Das ist eine Art des Lebens aber das ist nicht die Gesellschaft taugliche. Das Ziel war sie nach Möglichkeit in die Gesellschaft hereinzubringen.
+Das Ziel war die Jugendlichen in das hier und jetzt zu bringen, in die Realität dieser harten Welt. Du gehst nicht auf die Gasse, Kiffst und bringst dich mit Drogen um. Das ist eine Art des Lebens, aber das ist nicht die Gesellschaft taugliche. Das Ziel war sie nach Möglichkeit in die Gesellschaft hereinzubringen.
 
 **Würdest du es Jugendlichen weiterempfehlen?** 
 Immer. 
 
 **Glaubst du dass diese Reise die Jugendliche bereichert hat und das sie daraus gelernt haben?**
-Also da geh ich davon aus. Für mich, wenn es ein Jugendlicher ist von unseren sieben. Ein Jugendlicher, der gerettet werden kann. Also bei dem es gut kommt, der es schafft dann in die Gesellschaft reinzukommen und wirklich das Leben zu leben.
+Also davon geh ich stark aus. Für mich, wenn es ein Jugendlicher ist von unseren sieben. Ein Jugendlicher, der gerettet werden kann. Also bei dem es gut kommt, der es schafft dann in die Gesellschaft reinzukommen und wirklich das Leben zu leben.
 Das ist Erfolg, das lohnt sich und wenn es mehrere sind umso besser. 
 
 **Wie gab diese Reise den Jugendlichen eine Möglichkeit auf einen Neuanfang?**
-Also das hing von dem einzelnen Jugendlichen ab, was er in dieser Zeit lernen wollte, und da gab es unsäglich viele Möglichkeiten. Ich mag mich an eine Aussage des Ältesten erinnern sie lautete dahingehend „Wow das ist so wertvoll, ich habe so viel gelernt, ich bin sehr dankbar und glücklich dass ich dabei bin“. Als ich dann anschliessend diese Stelle am Zürichsee hatte und durch den Bahnhof Zürich ging, da sah ich diesen Jugendlichen, der diese Aussage gemacht hatte, durch die Bahnhofhalle schlendern, mit seiner Freundin im Arm. Der hats gepackt, das war ein wunderschönes Zeichen. Rewording you know. Da war mir klar, dass wen es eines der Jugendlicher ist, ein Jugendlicher der es schafft, das sich der Aufwand der Schiffreise gelohnt hat.
+Das hing von dem einzelnen Jugendlichen ab, was er in dieser Zeit lernen wollte, und da gab es unsäglich viele Möglichkeiten. Ich mag mich an eine Aussage erinnern, sie lautete dahingehend „Wow das ist so wertvoll, ich habe so viel gelernt, ich bin sehr dankbar und glücklich dass ich dabei bin“. Als ich dann anschliessend diese Stelle am Zürichsee hatte und durch den Bahnhof Zürich ging, da sah ich diesen Jugendlichen, der diese Aussage gemacht hatte. Er schlenderte durch die Bahnhofhalle, mit seiner Freundin im Arm. Der hats gepackt, das war ein wunderschönes Zeichen. Da war mir klar, dass wen es eines der Jugendlicher ist, ein Jugendlicher der es schafft, das sich der Aufwand der Schiffreise gelohnt hat.
 
 **\-Was konntest du wärend deiner Reise beobachten?**
-Ganz viel konnte ich beobachten, sehr viel Schönes auch weniger Schönes. Es war spannend, extrem spannend. Viel Neues eröffnete sich mir, dass ich mir nie hätte träumen lassen.
+Ganz viel konnte ich beobachten, sehr viel Schönes auch weniger Schönes. Es war spannend, extrem spannend. Viel Neues eröffnete sich mir, dass ich mir nie hätte träumen lassen. Es war bereichernd.
 
 **Was ist dir wichtig erschienen?**\
  Die Erfahrung gemacht zu haben. Ich bin um diese Erfahrung reicher geworden.
 
 **Was hat dich bewegt?**
-Also was mich am meisten bewegt habt ist der Reichtum an Erfahrungen, die ich machen durfte. Es gab extrem viele wunderbare Momente. Aber vielleicht dieses Beispiel von dem 25-Jährigen, der mit seiner Freundin durch die Bahnhofhalle schlendert, das war sehr rewording.
+Also was mich am meisten bewegt hat ist der Reichtum an Erfahrungen, die ich machen durfte. Es gab extrem viele wunderbare Momente. Aber vielleicht dieses Beispiel vom Jugendlichen, der mit seiner Freundin durch die Bahnhofshalle schlendert, das war sehr belohnend.
 
 **Was hast du gelernt, was hast du in dein persönliches Leben mitgenommen?**
-Gelernt habe ich dranbleiben, dranbleiben, dranbleiben. Pip egal was abgeht, zielgerichtet dranbleiben. 
+Gelernt habe ich immer dranzubleiben. Ganz egal was abgeht, zielgerichtet dranbleiben. 
 
-**Gibt es eine Botschaft die du auf deinem Weg mitgenommen hast, die du mitteilen möchtest?**
-Diese Reise war ein Erlebnis für mich, welches zeigt dass das Leben reich, 
-viel fältig, wunderbar und herausfordernd ist. Und dass das, was ausserhalb von Nullachtfünfzehn ist, mindestens ebenso wertvoll ist. 
-Und wir tun gut daran, das was ausserhalb von Nullachtfünfzehn ist, zu versuchen zu verstehen. Vielleicht verstehen wir es nicht, das macht nichts, aber immerhin es hat seinen Sinn.
-**Also das was aus dem Normen ist kennenzulernen?**\
-Ja, weil vielleicht steckt in dem was drin, was wir in der Norm, sehr gut gebrauchen können.
+**Welche Botschaft hast du auf deinem Weg mitgenommen?**
+Diese Reise war ein Erlebnis für mich, welches zeigt dass das Leben reich, viel fältig, wunderbar und herausfordernd ist. Und dass das, was ausserhalb von Nullachtfünfzehn ist, mindestens ebenso wertvoll ist. 
+Und wir tun gut daran, das was ausserhalb von Nullachtfünfzehn ist, zu versuchen zu verstehen. Vielleicht verstehen wir es nicht, das macht nichts, aber immerhin es hat seinen Sinn. Denn vielleicht steckt in dem was drin, was wir in der Norm, sehr gut gebrauchen können.
 
 **Wenn du nach draussen schaust und die Schiffe siehst, denkst du an deine Erlebnisse auf dem Meer?**
 Wen ich die Schiffe auf dem See sehe, erinnere ich mich wie die Cru das Schiff übers Wasser steuert. Die Schiffe interessieren mich nach wie vor und ich geniesse dass das Wasser mich weiterhin durch den Alltag begleitet, den ich liebte schon immer das Meer.
