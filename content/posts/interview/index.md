@@ -17,9 +17,9 @@ description = ""
 > Thérèse Zöller (Pseudonym, auf Wunsch der Befragten Person wurde der Name geändert) Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Selbst hat sie mit ihren Söhnen ein Segelpadent für auf offene See absolviert.\
 > Sie ist Sozialpädagogin und als Begleiterin auf der Segelturn mit Exdrogenabhängige dabei. In diesem Interview erzählt sie von ihrer Reise auf der Tectona im Jahr 1994.
 
-***\-Wie ich gehört habe, nennt man dich „alter Seebär“ wieso beschreibt man dich so?***
-Ich gehe davon aus, dass dieser Titel *„*Alter Seebär” daher rührt, weil ich sehr begeistert war mit all den Dingen, die wärend dieser Reise geschahen. 
-Es ging darum, dass die Arbeit auf dem Schiff Präzision und Aktivität erforderte. Man muss anpacken, im heir und jetzt. Also es geht nicht, dass man *„*laueret”, wie wir sagen, wenn die Fahrt erfolgreich sein soll. Das macht ein alter Seebär aus. %
+***\-Wie ich gehört habe, nennt man dich ,,alter Seebär‘‘ wieso beschreibt man dich so?***
+Ich gehe davon aus, dass dieser Titel ,,Alter Seebär‘’ daher rührt, weil ich sehr begeistert war mit all den Dingen, die wärend dieser Reise geschahen. 
+Es ging darum, dass die Arbeit auf dem Schiff Präzision und Aktivität erforderte. Man muss anpacken, im heir und jetzt. Also es geht nicht, dass man ,,laueret‘‘, wie wir sagen, wenn die Fahrt erfolgreich sein soll. Das macht ein alter Seebär aus. %
 
 ***\-Woher kommt deine Leidenschaft für das Meer und das Segeln?*** 
 Das Meer war immer ein Anziehungspunkt für mich. Ich habe mit meinen drei Söhnen das Segelpatent auf der See auf den Schweizer Seen erworben. Und später, mit der Unterstützung von meinem Sohn Robert, noch die Theorie für den See-Ausweis, also See- gleich Meer-Ausweis. Und wie ich den hatte, meldete ich mich bei der *„*Plus Schweizer Jung zur See“, mit der Bitte, sie sollen mich auf so einen Törn als Mitarbeiterin schicken. % 
