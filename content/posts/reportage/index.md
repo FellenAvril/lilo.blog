@@ -8,7 +8,7 @@ image = "img_0085.jpeg"
 +++
 ##### Ein Neuanfang- Die Segeltour für Drogenabhängige im Entzug. Schaffen die Jugendlichen es durch diese Reise auf dem Segelschiff Tectona, weg von den Drogen zu gelangen, zurück in die Gegenwart? Dies ist ihnen selbst überlassen, es liegt in ihrer eigenen Hand. Können sie es Packen oder lassen sie ihr Leben an sich vorbeirauschen? Auf der Tectona nimmt diese lebensverändernde Reise ihren Lauf.
 
-> Thérèse Zöller (Pseudonym) begibt sich auf eine Reise übers offene Meer. Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte das Meer. Sie hat mit ihren Söhnen, ein Segelpadent für auf offene See absolviert. Sie ist Sozialpädagogin und als Begleiterin auf dem Segeltörn mit Ex-Drogenabhängigen dabei.
+> Thérèse Zöller (Pseudonym) begibt sich auf eine Reise übers offene Meer. Sie ist 73 jährig und lebt am Thunersee. Schon immer war sie begeistert von Schiffen und liebte sie das Meer. Sie hat mit ihren Söhnen, ein Segelpadent für auf offene See absolviert. Sie ist Sozialpädagogin und als Begleiterin auf dem Segeltörn mit Ex-Drogenabhängigen dabei. %
 
 ![Segelschiff Tectona ](img_0085.jpeg "Segelschiff Tectona")
 
@@ -18,10 +18,10 @@ Am Horizont die Sonne beim Aufgehen, Wind im Gesicht, unter den Füssen nasse Pl
 Sozialpädagogin Thérèse Zöller ist von September 1994 bis März 1995 als Begleiterin auf einer abenteuerlichen Reise dabei: Der Sommertörn, welcher von der **Organisation Plus Schweizer Jugend zur See** geführt wird. Dieser Segeltörn dient als anschliessende Therapie für Drogenabhängige Jugendliche nach dem Entzug.
 
 ***Aufgaben***\
-Sie als Soziapädagogin ist verantwortlich für das Verhalten der Jugendlichen. Die weiteren Begleiter sind der erfahrene Kapitän der das Sagen übers Schiff hat, der Co-Skipper, der auf dem Deck arbeitet, und die Zahlmeisterin, die die Verantwortung hat die Buchhaltung und das Journal mit den Ereignissen der Reise zu führen.
+Sie als Soziapädagogin ist verantwortlich für das Verhalten der Jugendlichen. Die weiteren Begleiter sind der erfahrene Kapitän der das Sagen übers Schiff hat, der Co-Skipper, der auf dem Deck arbeitet, und die Zahlmeisterin, die die Verantwortung hat die Buchhaltung und das Journal mit den Ereignissen der Reise zu führen.%
 
 ***An Deck***\
-Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hinu$nd Her schwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden. Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
+Hier steht Thérèse Zöller auf dem Segelschiff, welches in Indien aus Tiekholz gebaut wurde, und spürt ein abruptes Hin- und Herschwanken der Wellen unter ihren Füssen. Sie lässt die Sonne durch ihre Windjacke sickern. Dies treibt die Kälte des Windes weg, die Anspannung aber bleibt, die ist zu gross, um weggetrieben zu werden. Denn es gilt immer wachsam zu sein, aufzupassen, alles unter Kontrolle zu behalten, den Erwartungen gerecht zu werden und die Augen offen zu halten. Ihr Blick schweift in die Ferne, rings herum das Meer, das sich bis zum Horizont erstreckt. Diese Umgebung wird sie die nächsten sieben Monate begleiten.
 
 > ”Es gilt, immer die Augen offen zu halten.”     
 
