@@ -48,7 +48,7 @@ Die Jugendlichen müssen der Versuchung wiederstehen, wieder in die alten Muster
 
 > “Die Jugendlichen müssen der Versuchung meiden wieder in die alten Muster zu fallen. Man will diese durchbrechen genau wie das Schiff die Wellen.”
 
-Zu jeder Zeit aufmerksam zu sein, ist eine harte Challenge. Es ist eine grosse Verantwortung, die schwer auf den Schultern lastet. Man will ihr gerecht werden, die Jugendlichen auf der Reise begleiten und sicher wieder zurückbringen. In der Hoffnung, dass sie es packen können, wieder in die Gesellschaft einzusteigen. Damit sie ihr eigenes Leben führen können.
+Zu jeder Zeit aufmerksam zu sein, ist eine harte Challenge. Es ist eine grosse Verantwortung, die schwer auf den Schultern lastet. Man will ihr gerecht werden, die Jugendlichen auf der Reise begleiten und sicher wieder zurückbringen. In der Hoffnung, dass sie es packen können, wieder in die Gesellschaft einzusteigen. Damit sie ihr eigenes Leben führen können.%
 
 Die Jugendlichen erwischen die Zahlmeisterin beim Drogenkonsum. Das ist für sie ein gefundenes fressen, welches sie zu ihren Gunsten brauchen. Die Zahlmeisterin hat bei ihrer Aufgabe verfehlt, sie ist schwach und abhängig. Diese schwäche brauchen die Jugendlichen gegen sie. Sie haben die Zahlmeisterin direkt unter Kontrolle und können so den Leitern hinter dem Rücken gehen. Dies setzt das Konzept ausser Balance, gibt ein Riss in die Reise, ein Strich durch die Rechnung. Vertrauen gecht verloren und die Zahlmeisterin muss fristlos gehen.
 
