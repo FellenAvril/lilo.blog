@@ -70,10 +70,10 @@ Diese Reise ist eine Bereicherung sie gibt einem einen Einblick ausserhalb von 0
 
 \*Norm
 
-Die Sonne wärmte ihre Lederjacke, nun tritt sie hinein in den lebendigen Zürcher Bahnhof, ihr stets noch wachsamer Blick schweift durch die Menschenmenge. Und hier erblickt sie das Jüngelchen des Segeltörns, nun ist er ein junger Mann. Sein Blick ist auf seine Freundin gerichtet, mit der er Arm in Arm durch die Bahnhofshalle schlendert. Ein Lächeln, wie sie es auf dem Segeltörn nie gesehen hatte, auf seinem Gesicht. Er hat es gepackt. Die lauten Stimmen der umherhuschenden Leute treten in den Hintergrund und verstummen. Zu wissen, dass einer der Jugendlichen es geschafft hat, ist die grösste Belohnung. Auch wenn es nur einer ist, nur einer der es schafft, ist es jede Anstrengung wert. Dies zeigt einem, dass sich die harte Arbeit ausgezahlt hat und dass sich der Segeltörn gelohnt hat.
+Die Sonne wärmt ihre Lederjacke, nun tritt sie hinein in den lebendigen Zürcher Bahnhof, ihr stets noch wachsamer Blick schweift durch die Menschenmenge. Und hier erblickt sie das Jüngelchen des Segeltörns, nun ist er ein junger Mann. Sein Blick ist auf seine Freundin gerichtet, mit der er Arm in Arm durch die Bahnhofshalle schlendert. Ein Lächeln, wie sie es auf dem Segeltörn nie gesehen hatte, auf seinem Gesicht. Er hat es gepackt. Die lauten Stimmen der umherhuschenden Leute treten in den Hintergrund und verstummen. Zu wissen, dass einer der Jugendlichen es geschafft hat, ist die grösste Belohnung. Auch wenn es nur einer ist, nur einer der es schafft, ist es jede Anstrengung wert. Dies zeigt einem, dass sich die harte Arbeit ausgezahlt und dass sich der Segeltörn lohnt.
 
 \*, & präsenz
 
 > ”Wen es auch nur ein Jugendlicher ist, der es schafft die Drogen hinter sich zu lassen und in ein neuen Lebensabschnitt zu segeln, lohnt sich die Segeltour”
 
-Es fühlte sich an, als sickerte die Wärme der Sonnenstrahlen durch ihre Lederacke, auch wenn sie hier im Bahnhof nicht zu sehen ist. Obwohl sie nicht mehr auf dem Schiff ist, spürt sie das Schwanken der Wellen und sieht die Sonne wie sie untergeht. Der wunderschöne Sonnenuntergang, in seinen prächtigen Farben, die sie durch diese Reise durch getragen haben.
+Es fühlt sich an, als sickerte die Wärme der Sonnenstrahlen durch ihre Lederacke, auch wenn sie hier im Bahnhof nicht zu sehen ist. Obwohl sie nicht mehr auf dem Schiff ist, spürt sie das Schwanken der Wellen und sieht die Sonne wie sie untergeht. Der wunderschöne Sonnenuntergang, in seinen prächtigen Farben, die sie durch diese Reise durch getragen haben.
