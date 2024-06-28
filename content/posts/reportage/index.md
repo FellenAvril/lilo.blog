@@ -64,11 +64,15 @@ Um an Deck das ganze Geschehen zu kontrollieren, halten die Leiter Schichtweise 
 Bei ihren Wachen blickt Therese Zöller Tag und Nacht über das Meer und erblickt dabei am Horizont, wie die Sonne rauf- und runtergeht. Dies ist wohl der schönste Teil ihres strengen Tagesablaufes. Dieser Moment erfüllt sie mit neuer Energie, für den kommenden Tag.%
 
 ***Outcome***\
-Diese Reise war eine Bereicherung es gab einem einen Einblick ausserhalb von 0815, welches wertvoll ist und sich lohnt, auch für die in der Norm. Gerade dort mag das Liegen, wovon man etwas lernen kann. Jeder verdient eine zweite Chance und es ist ein schönes Erlebnis, den Jugendlichen durch diese Segeltour eine zu geben.
+Diese Reise ist eine Bereicherung sie gibt einem einen Einblick ausserhalb von 0815, was wertvoll ist und sich lohnt, auch für die in der Norm. Gerade dort mag das liegen, wovon man etwas lernen kann. Jeder verdient eine zweite Chance und es ist ein schönes Erlebnis, den Jugendlichen durch diese Segeltour eine zu geben. *Norm, präsens,
 
 > ‘’Ausserhalb der Norm liegt etwas von enormer Wichtigkeit, auch für die in der Norm.’’
 
-Die Sonne wärmte ihre Lederjacke, nun tritt sie hinein in den lebendigen Zürcher Bahnhof, ihr stets noch wachsamer Blick schweift durch die Menschenmenge. Und hier erblickt sie, dass Jüngelchen der Segeltörn, nun ist er junger Mann. Sein Blick ist auf seine Freundin gerichtet, mit der er Arm in Arm durch die Bahnhofshalle schlendert. Ein Lächeln, wie sie es auf der Segeltörn noch nie gesehen hatte, auf seinem Gesicht, er hat es gepackt. Die lauten Stimmen der umherhuschenden Leute treten in den Hintergrund und verstummen. Zu wissen das einer der Jugendlichen es geschafft hat, ist die grösste Belohnung. Auch wen es nur einer ist, nur einer der es schafft, ist es jede Anstrengung wert. Dies zeigt einem, dass sich die harte Arbeit ausgezahlt hat und dass sich die Segeltörn gelohnt hat.
+\*Norm
+
+Die Sonne wärmte ihre Lederjacke, nun tritt sie hinein in den lebendigen Zürcher Bahnhof, ihr stets noch wachsamer Blick schweift durch die Menschenmenge. Und hier erblickt sie das Jüngelchen des Segeltörns, nun ist er ein junger Mann. Sein Blick ist auf seine Freundin gerichtet, mit der er Arm in Arm durch die Bahnhofshalle schlendert. Ein Lächeln, wie sie es auf dem Segeltörn nie gesehen hatte, auf seinem Gesicht. Er hat es gepackt. Die lauten Stimmen der umherhuschenden Leute treten in den Hintergrund und verstummen. Zu wissen, dass einer der Jugendlichen es geschafft hat, ist die grösste Belohnung. Auch wenn es nur einer ist, nur einer der es schafft, ist es jede Anstrengung wert. Dies zeigt einem, dass sich die harte Arbeit ausgezahlt hat und dass sich der Segeltörn gelohnt hat.
+
+\*, & präsenz
 
 > ”Wen es auch nur ein Jugendlicher ist, der es schafft die Drogen hinter sich zu lassen und in ein neuen Lebensabschnitt zu segeln, lohnt sich die Segeltour”
 
