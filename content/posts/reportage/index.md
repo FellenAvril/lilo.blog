@@ -58,10 +58,10 @@ Der Schritt weg von den Drogen ist ein grosser und es ist einfach wieder hineinz
 Auch das Wetter hatte seine Schwankungen, auch hiermit musste sich die Crew auseinandersetzen. Bei einem grossen Sturm schlugen die Regentropfen in die Gesichter, es sah aus, als liefen ihnen Tränen die Wangen hinunter. Wegen dem Umwetter mussten sie mit dem Segelschiff Umwege machen. Auch um unter den Jugendlichen Fortschritte zu erreichen, brauchte es Umwege, manchmal Rückschritte. Die Jugendliche schlossen sich zusammen und waren ein starkes Team.%
 
 ***Begegnungen***\
-Auf der Reise sehen sie Wahle, die unter dem Schiff schwimmen und mit ihrer mächtigen Flosse die Oberfläche durchbrechen. Auch Meeresschildkröten und Schmetterlinge können sie mit Bewunderung beobachten. Sie entdecken neue Länder und Inseln weit draussen im Meer.
+Auf der Reise sehen sie Wale, die unter dem Schiff schwimmen und mit ihrer mächtigen Flosse die Oberfläche durchbrechen. Auch Meeresschildkröten und Schmetterlinge können sie mit Bewunderung beobachten. Sie entdecken neue Länder und Inseln weit draussen im Meer.
 
-Um an Deck das ganze Geschehen zu kontrollieren halten die Leiter Schichtweise Wache.\
-Bei ihren Wachen blickt Therese Zöller Tag und nachts, über das Meer und erblickt dabei am Horizont, wie die Sonne rauf und runtergeht. Dies ist wohl der schönste Teil, ihres strengen Tagesablaufes. Dieser Moment erfüllt sie mit neuer Energie, für den kommenden Tag.
+Um an Deck das ganze Geschehen zu kontrollieren, halten die Leiter Schichtweise Wache.\
+Bei ihren Wachen blickt Therese Zöller Tag und Nacht über das Meer und erblickt dabei am Horizont, wie die Sonne rauf- und runtergeht. Dies ist wohl der schönste Teil ihres strengen Tagesablaufes. Dieser Moment erfüllt sie mit neuer Energie, für den kommenden Tag.%
 
 ***Outcome***\
 Diese Reise war eine Bereicherung es gab einem einen Einblick ausserhalb von 0815, welches wertvoll ist und sich lohnt, auch für die in der Norm. Gerade dort mag das Liegen, wovon man etwas lernen kann. Jeder verdient eine zweite Chance und es ist ein schönes Erlebnis, den Jugendlichen durch diese Segeltour eine zu geben.
